@@ -34,3 +34,6 @@ jobs:
           git fetch origin
           git rebase --strategy-option=theirs origin/main
           git push
+
+      - name: Publish Documentation
+        uses: elastic/docs-builder/actions/publish@main
