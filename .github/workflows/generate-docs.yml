@@ -1,0 +1,21 @@
+name: Generate Docs
+on:
+  schedule:
+    - "0/5 * * * *"
+
+permissions:
+  contents: read
+  packages: write
+
+jobs:
+  generate:
+    runs-on: ubuntu-latest
+    permissions:
+      pages: write
+      id-token: write
+    steps:
+      - uses: actions/checkout@v4
+      - name: Generate Documentation
+        uses: elastic/docs-builder/actions/generator@main
+        with:
+          output: "docs"
