@@ -12,7 +12,10 @@ jobs:
       id-token: write
       contents: write
       packages: write
-
+    # Deploy to the github-pages environment
+    environment:
+      name: github-pages
+      url: ${{ steps.deployment.outputs.page_url }}
     steps:
       - uses: actions/checkout@v4
       - name: Generate Documentation
@@ -37,3 +40,4 @@ jobs:
 
       - name: Publish Documentation
         uses: elastic/docs-builder/actions/publish@main
+        id: deployment
