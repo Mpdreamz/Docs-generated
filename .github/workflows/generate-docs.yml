@@ -5,7 +5,7 @@ on:
   workflow_dispatch:
 
 permissions:
-  contents: read
+  contents: write
   packages: write
 
 jobs:
@@ -20,3 +20,18 @@ jobs:
         uses: elastic/docs-builder/actions/generator@main
         with:
           output: "docs"
+      - name: get current date time
+        run: echo "TIME=$(date '+%Y-%M-%d %H:%m:%S')" >> ${GITHUB_ENV}
+      - name: setup git config
+        run: |
+          # setup the username and email. I tend to use 'GitHub Actions Bot' with no email by default
+          git config user.name "GitHub Actions Bot"
+          git config user.email "<>"
+      - name: commit
+        run: |
+          # Stage the file, commit and push
+          git add time.txt
+          git commit -m "Doc generation: ${{ env.TIME }}"
+          git fetch origin
+          git rebase --strategy-option=theirs origin/main
+          git push
