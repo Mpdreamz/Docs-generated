@@ -1,0 +1,29 @@
+project: random-docset--
+toc:
+  - folder: aut
+  - folder: aut/quas
+  - folder: aut/quas/placeat
+  - folder: aut/quas/perferendis
+  - folder: aut/laudantium
+  - folder: aut/laudantium/excepturi
+  - folder: aut/laudantium/voluptates
+  - folder: aut/laudantium/placeat
+  - folder: alias
+  - folder: quod
+  - folder: quod/est
+  - folder: quod/est/velit
+  - folder: quod/est/architecto
+  - folder: quod/est/delectus
+  - folder: quod/eveniet
+  - folder: quod/eveniet/vero
+  - folder: quod/eveniet/aut
+  - folder: quod/eveniet/qui
+  - folder: quod/esse
+  - folder: quod/esse/eius
+  - folder: quod/esse/exercitationem
+  - folder: quod/esse/id
+  - folder: quod/magnam
+  - folder: quod/magnam/omnis
+  - folder: quod/magnam/necessitatibus
+  - file: index.md
+
