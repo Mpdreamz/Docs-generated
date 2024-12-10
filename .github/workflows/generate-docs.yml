@@ -44,7 +44,7 @@ jobs:
 
       - name: Publish Vercel
         uses: elastic/docs-builder/actions/publish-vercel@main
-        id: deployment
+        id: deployment-vercel
         with:
           VERCEL_TOKEN: ${{ secrets.VERCEL_TOKEN }}
           VERCEL_ORG_ID: ${{ secrets.VERCEL_ORG_ID }}
