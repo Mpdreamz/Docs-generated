@@ -38,6 +38,14 @@ jobs:
           git rebase --strategy-option=theirs origin/main
           git push
 
-      - name: Publish Documentation
+      - name: Publish Github
         uses: elastic/docs-builder/actions/publish@main
         id: deployment
+
+      - name: Publish Vercel
+        uses: elastic/docs-builder/actions/publish-vercel@main
+        id: deployment
+        with:
+          VERCEL_TOKEN: ${{ secrets.VERCEL_TOKEN }}
+          VERCEL_ORG_ID: ${{ secrets.VERCEL_ORG_ID }}
+          VERCEL_PROJECT_ID: ${{ secrets.VERCEL_PROJECT_ID }}
