@@ -52,6 +52,9 @@ jobs:
       id-token: write
       contents: write
       packages: write
+    environment:
+      name: vercel-pages
+      url: ${{ steps.deployment-vercel.outputs.preview-url }}
     steps:
       - uses: actions/checkout@v4
 
