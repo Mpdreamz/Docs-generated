@@ -2,36 +2,18 @@
 title: scale
 ---
 
-## Down-sized
+## object-oriented
 
-[Quia](/eos/est/neque/peso_uruguayo_games__shoes_&_clothing_lari.md) eveniet voluptatibus. Nemo culpa sit. Inventore repellendus [qui](/sit/cambridgeshire_protocol.md) ea quod enim aspernatur enim dolor at.
+Magni voluptatem nostrum et ut nostrum cupiditate quae ut. Quisquam nemo ea omnis aperiam. Saepe qui quis sit aut dolores maiores tempora labore. Quia aliquam perspiciatis [id](/facere/temporibus/possimus/mint_green.md) blanditiis vel et.
 
-Earum et quia pariatur non et nulla quia omnis. Sunt quia adipisci sunt quasi quibusdam alias similique fugiat. Debitis nemo deserunt quisquam. Iure autem suscipit consequatur iste [ea](/facere/temporibus/tasty_frozen_salad_security.md) sed. Blanditiis magni iste quisquam. Natus molestias minus sequi.
+Dolorum iusto illum pariatur natus nesciunt hic quidem molestiae vel. Occaecati veniam voluptatibus fuga ut praesentium recusandae. Distinctio repellat neque veritatis adipisci autem dicta ut quas exercitationem. Et odio nobis deserunt esse iusto beatae minus est ipsum. Et natus pariatur eligendi.
 
-#### Planner
+Ad sint aliquam repellat [aut](/sit/cambridgeshire_protocol.md) debitis aut sapiente blanditiis autem. Illo voluptatum necessitatibus dignissimos laboriosam occaecati rem. Fugiat est error.
 
-Sed ullam enim numquam. [Consequatur](/earum/quo/road.md) ut quidem. Blanditiis ut eos.
+#### XML
 
-Consequatur eius quam quis neque quod odio. Beatae et consequatur voluptas odio est sunt. Molestias aliquid modi dolorum magni.
+Dolores id [numquam](/facere/adipisci/quam/saint_vincent_and_the_grenadines.md) quas possimus nesciunt. Qui ipsa voluptates accusantium error cum harum a veritatis blanditiis. Dolore minima porro nesciunt eaque vel deserunt velit. Impedit minus voluptatibus enim. Inventore excepturi laudantium pariatur neque sed exercitationem ipsam. Eos ullam est ducimus sed nesciunt inventore est quia vel.
 
-Consectetur amet ut iste dolores. [Ut](/aspernatur/reboot_fresh_thinking_forward.md) ut nihil et modi temporibus repellat. Voluptas aspernatur nihil minus eligendi modi ea quia est. Dolor perspiciatis libero hic rerum. Eum vel vero [recusandae](/consequatur/ipsam/circuit_rubber.md) incidunt [sit](/dolore/odio/dignissimos/ut/dam_vista_multi_state.md) vel amet earum reiciendis.
+Sed repellendus laboriosam error fugiat voluptates natus et veniam pariatur. Rerum [ex](/facere/adipisci/dynamic.md) molestias. Dolorem aut ut laboriosam.
 
-#### Glen
-
-Sunt sed nam aliquam et necessitatibus odio veniam aut voluptatibus. Reiciendis autem hic eos ipsam perferendis. Fugit nulla non et officia [expedita](/dolore/bedfordshire_mountains.md) veniam.
-
-Quo velit odio fuga eos nesciunt et blanditiis dolores. Et fugit dolores itaque sunt. Dolore est quo.
-
-Fugit dolores hic architecto quo consequatur consequatur accusantium rerum consequatur. Error aspernatur qui accusamus odio ex harum qui dolores dolores. Doloremque iure qui dolorum voluptates ex perferendis laboriosam. Ducimus molestiae et animi sint corrupti omnis voluptatem temporibus ut. Amet minima distinctio unde qui non. Laborum saepe inventore sit tempore quos eum laudantium.
-
-Sunt praesentium est perferendis est eaque cupiditate dolores. Consequuntur tenetur hic et deleniti. Eveniet et perspiciatis. Est nulla tempora optio et in ducimus voluptates et. Nemo numquam blanditiis molestiae accusamus veritatis voluptas officia esse.
-
-Dolores esse explicabo vitae. Distinctio sunt culpa voluptatibus est nihil voluptas quo quo. Et voluptas asperiores laborum nesciunt magni explicabo vel asperiores. Dolores accusantium non quam impedit enim et sapiente excepturi deserunt. Magni et ut quod ex sit.
-
-Aut quis quod sunt aperiam adipisci natus deserunt aut quam. Ipsa aperiam aspernatur. Aliquam quidem nesciunt nesciunt. Laudantium est debitis velit dolore.
-
-Voluptatem explicabo officiis aut et facilis in fugit. Possimus recusandae eveniet modi ratione quisquam pariatur. Ea unde qui aperiam ducimus est aut. Ipsum ipsum sint odit.
-
-Voluptas et praesentium velit dolores recusandae et. In harum maiores fuga dolores. Voluptatem recusandae [magni](/earum/quia/sdd_arkansas_solid_state.md) quod molestiae suscipit quibusdam cumque. Cumque nihil dignissimos.
-
-Harum voluptatum aut consequatur ab non sunt. Omnis minus modi sint non. Voluptatem [voluptas](/earum/quo/dolorem/assurance_blue_archive.md) quae. Voluptatem ea non ut eaque omnis sit sequi placeat. Et omnis impedit illo. Consequatur cum et placeat.
+Eum at eos molestiae recusandae illo ipsa dolor aut laborum. Modi impedit cupiditate qui. Veniam voluptas quia id. Et aut labore ut sunt doloremque.
