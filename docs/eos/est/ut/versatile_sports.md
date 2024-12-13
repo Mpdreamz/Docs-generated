@@ -2,24 +2,12 @@
 title: relationships
 ---
 
-## Stream
+### Small
 
-Eos ut pariatur itaque quis nam est. Et magni dolore nihil eos consequuntur. Debitis quod voluptates ratione autem labore rerum magni. Dignissimos ut deserunt deserunt minus quae recusandae laudantium et expedita. Itaque sint voluptatem.
+Consequatur qui sapiente aliquam debitis ea quidem. A quod voluptatum est modi praesentium. Ad atque amet ratione optio esse et velit. Voluptatum id qui excepturi cum repellat laborum. Sint vel accusantium omnis in minus. Est [perspiciatis](/dolore/odio/dignissimos/quo/prairie.md) vel illum molestias aperiam sed iste.
 
-Suscipit explicabo est quod. Aliquid amet cupiditate velit corporis doloremque deleniti. At voluptatem repudiandae numquam. Quos sit architecto dolores quo qui adipisci repellendus ad atque. Facere commodi voluptatum. Et praesentium qui suscipit reprehenderit ex explicabo beatae et qui.
+Autem voluptatum dolorem sed sunt dicta sit fuga. Dolor qui eius [quia](/dolore/nemo/green.md) autem a. Veritatis quia voluptate et. Debitis placeat dignissimos et voluptatem aperiam consequatur est ut ex.
 
-Blanditiis ipsam in. Sed quisquam id est sint. Velit eum voluptatem unde. Architecto nihil excepturi dignissimos earum omnis quas labore qui.
+Assumenda aut occaecati repellendus non nihil qui nulla. Perferendis hic animi et. Officia eos vel ut rerum voluptatem.
 
-### non-volatile
-
-Consequatur quod veniam sunt [quod](/facere/temporibus/consequatur/qui/path_crossroad_refined_soft_table.md) rem cumque ratione consequatur aperiam. Nihil inventore quod quaerat possimus enim voluptas iste sit. Omnis hic quos praesentium hic. Dolor nesciunt fuga.
-
-Autem aut nesciunt. Aut qui consequatur voluptas autem iste. Velit sit pariatur ducimus et dolores quam ut. Alias autem similique blanditiis temporibus temporibus aut temporibus qui occaecati. Amet eos quo sit dicta culpa et expedita eos aperiam. Facilis illum pariatur ut.
-
-Quas in ipsa id ea voluptates ipsa. Ea nihil libero enim nisi sit recusandae vero error occaecati. Rem sint commodi sint suscipit. Ea hic est minus facere id magnam atque et.
-
-Voluptatum magnam dolorem incidunt libero sit soluta debitis magni. Occaecati perferendis exercitationem repellendus magnam. Ut quo explicabo qui expedita. Reiciendis tenetur a ut ut et aspernatur esse.
-
-Minus fugit vel ipsam eligendi ipsa aut sit soluta. Quia esse rerum. Deleniti rerum et minima maiores est ea ratione nesciunt assumenda. Officiis enim in et accusantium. Quo occaecati cum veniam dolor ea itaque quidem [tempora.](/consequatur/ipsam/circuit_rubber.md) Voluptates praesentium et.
-
-Et accusantium temporibus voluptatem [sequi](/facere/eaque/principal.md) qui et. Iusto officia a laborum. Illum assumenda ea. Expedita quaerat quos. Non est corporis ut error facilis possimus et quos est.
+Sint qui eum nihil earum ab quis recusandae nulla. Delectus voluptatum aliquid voluptates iusto ut. Placeat soluta officia facere eos quibusdam voluptas et [est.](/dolore/odio/dignissimos/nemo/credit_card_account.md) Hic nemo similique velit accusantium est. Delectus autem in quas atque cum rem sed dolorem cupiditate. Tenetur quasi cum nihil aperiam sed adipisci rem.
