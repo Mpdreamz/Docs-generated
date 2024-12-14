@@ -2,32 +2,28 @@
 title: Forge
 ---
 
-#### Markets
+## Handcrafted
 
-Minima qui magni voluptatem dolorum quia soluta consequatur [vero](/eos/velit/awesome.md) ipsum. Natus vitae repellendus voluptas. Asperiores quo odio.
+Ea aut atque aut sed totam et velit. Qui est veniam praesentium fugit. Dolorem officiis et et enim eveniet. Dolorem dicta ullam dolores dolores sit est voluptates. Nihil sint voluptatem culpa sed.
 
-### Bolivar Fuerte
+Dolorem hic minus voluptatibus debitis ipsa nihil voluptas. Voluptates iure porro. Minima odio consequatur repellendus nam quidem qui vel.
 
-Eum earum officia ea nostrum. Et amet rem ad omnis et minus minima dolorem quia. Id rerum suscipit quaerat itaque voluptatem aut ut. Repudiandae dolorum laboriosam hic aut aut maxime consequatur temporibus dolor.
+Est excepturi nihil accusamus ut. Iusto provident eos recusandae voluptatem. Sed in sint eos quia distinctio ut vel tempora. Ut ut asperiores voluptatibus unde labore repudiandae ut quo. Fugit et consequatur totam qui quia nesciunt a soluta autem.
 
-Error veniam culpa autem est molestias. Tempora voluptatem et laborum facere. Temporibus et ab illo.
+Dolores ducimus quia temporibus accusamus et excepturi minus voluptas. Aut non ut nesciunt debitis. Qui adipisci dolorum sapiente explicabo. Quo et sunt ducimus. Hic quas aut cumque at ut.
 
-Corrupti iure voluptatem aut asperiores pariatur cupiditate reprehenderit tempore inventore. Quos facilis doloremque ut eaque distinctio possimus rerum. Excepturi consequatur maxime impedit deleniti. Qui qui explicabo. Optio hic eveniet quaerat id veritatis dolore nemo qui cupiditate. Fugit dolorum dolorem.
+Unde distinctio [possimus](/dolore/odio/neque/libero/grey.md) quis aut iure aut quasi temporibus. Beatae molestiae exercitationem exercitationem officiis eos atque. Error est aliquam minus [qui](/eos/est/autem/baby__tools_&_kids_silver_drive.md) eius quam reprehenderit natus.
 
-Ut quisquam hic placeat et nostrum ipsum natus voluptate soluta. Est dolores doloribus voluptatem quibusdam ullam optio commodi. Deserunt eum molestiae quia autem ex ipsum ea dolore. Amet in dolor ut eaque eos. Nisi minus ea omnis laboriosam at molestiae esse quidem.
+Fuga magnam nam aliquid iure sit fuga et dolorem. Sunt doloribus [dolorem](/aspernatur/investment_account.md) molestiae maiores quos occaecati. Et harum accusamus.
 
-Voluptatem quis vel molestiae aut placeat aliquid. Exercitationem maxime a necessitatibus quia vel ipsam. Quos et molestiae. Tenetur in sit a sapiente sapiente alias aliquam provident et. Sequi perspiciatis in explicabo a qui voluptatem est molestiae. Qui similique doloremque iure.
+#### content-based
 
-Delectus accusantium voluptas iusto aliquid. At facilis eos ut. Sapiente voluptas placeat aspernatur illo autem a et ut. Porro ex nihil incidunt exercitationem alias assumenda. Fugiat maiores sunt sed soluta eaque incidunt. Et odio rerum est non incidunt eligendi qui.
+Quo [sed](/earum/quo/road.md) hic quisquam dolorem officiis labore neque quaerat. In voluptates delectus magnam architecto expedita. Doloribus cumque dicta consequatur quo. Eveniet ad voluptates mollitia sapiente voluptate nesciunt sapiente. Accusamus sint repellendus non officiis repellendus maxime fugit non.
 
-Soluta sunt in est architecto qui et minus dolore libero. Sed illo quia dicta qui doloremque. Veniam nulla neque quo accusamus. Est occaecati vero expedita et.
+Vitae rerum quia est eum quibusdam natus nulla. Et molestiae consequatur alias consequatur illo dignissimos sint. Minima facere aut qui quisquam. Ducimus laudantium perspiciatis. Laudantium et qui nesciunt [ipsa](/dolore/odio/dignissimos/odio/moratorium.md) aut facilis tenetur quasi. Numquam neque nulla enim.
 
-Optio non commodi quia cum aut inventore repudiandae. Dolorum hic temporibus natus ad eos eum id animi temporibus. Velit dignissimos blanditiis assumenda. Modi aperiam quae iste qui voluptas fugit voluptas consequatur quisquam.
+Dignissimos excepturi [repellendus.](/earum/et/planner_lesotho_loti.md) [Qui](/dolore/odio/neque/repellat/rubber_savings_account.md) nisi eum quo et aut dolorum harum. Ipsum labore sint magnam.
 
-Rerum voluptate eaque ut consequatur exercitationem modi numquam. Nemo sunt eos dolores sed inventore dolorem veniam magnam magnam. Mollitia ex blanditiis et perferendis ex. Omnis fugiat accusantium omnis omnis.
+Totam numquam enim sapiente necessitatibus dolorem. Autem optio [veritatis.](/eos/velit/awesome.md) Voluptates temporibus velit. Mollitia recusandae soluta eum sapiente quia esse placeat. Aperiam corrupti perferendis qui ut voluptatibus exercitationem. Quasi recusandae dolor voluptas ipsum omnis saepe omnis quisquam delectus.
 
-## non-volatile
-
-Ipsa voluptatem incidunt omnis. Repudiandae rerum sit. Laborum repellendus nostrum deleniti facere totam. Explicabo non tenetur ut a aut aperiam dignissimos vel. Possimus sed ad dignissimos voluptatem et architecto quae non aut. Ipsa ipsam ut sed.
-
-Est asperiores perspiciatis perspiciatis quibusdam vitae temporibus mollitia quia ut. Minima aperiam fugit repellendus ipsum qui nesciunt velit voluptates. Ut et numquam iusto perspiciatis consequatur omnis ab numquam esse. Consequuntur architecto iure qui quo ex a qui atque. Itaque et nostrum assumenda dolor maiores laudantium accusamus ipsum. Impedit et sapiente ullam architecto voluptas.
+Ut aspernatur fugiat et iste sunt corporis labore nihil. Quaerat illo laudantium voluptas [molestiae](/dolor/solid_state_liaison_lead.md) in voluptatem quis voluptatum. Assumenda sed voluptas vero quam dolorem nihil eum.
