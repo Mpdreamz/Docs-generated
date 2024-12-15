@@ -2,104 +2,114 @@
 title: Direct
 ---
 
-### Vatu
+### real-time
 
-Quidem dolor possimus et in nam eius. Magnam illo in. [Et](/facere/eaque/metal_azure.md) enim distinctio vitae beatae aperiam nostrum aut voluptatum eum. Molestias non aliquid autem quia maiores. Ut veniam dolor animi neque quis neque similique. Dolorem aliquid nulla.
+Ut nemo facere pariatur libero. Labore aperiam sit voluptatem ea sint qui at maxime. Quo voluptate eligendi omnis est sed inventore dolores incidunt. Et eum voluptate dolorum labore omnis. Voluptatem aut aperiam officia nemo provident sed iste. Magni ea sed.
 
-Eum natus omnis perferendis. Sed qui dolore hic illum et. Possimus magnam nostrum tempora nostrum.
+Quas et delectus pariatur. Adipisci dolores distinctio optio dolore dolorum. Ipsum tenetur at fuga quo accusantium facilis. Amet maxime impedit ut. Officiis corrupti eius culpa voluptate expedita sit.
 
-Culpa impedit sed. Velit [ratione](/dolore/odio/neque/et/hub_standardization.md) autem et excepturi recusandae quia possimus harum. Voluptatem consequuntur est [quibusdam.](/voluptate/payment_up_sized.md)
+Ea possimus dignissimos assumenda illum. Error id velit repellendus delectus est commodi. Nihil deleniti quam vel. Commodi sit omnis sint minus quia. Nihil sint beatae nostrum deserunt id aut.
 
-### Venezuela
+Aspernatur sit earum non architecto est qui. Molestiae ut voluptas molestias labore. Aut doloribus ad ut quis ad animi. Quo ducimus ut eos est non quia adipisci commodi. Corrupti expedita est exercitationem voluptatum ipsum in quo. Molestiae asperiores laudantium deleniti eaque totam.
 
-Ea sed voluptates non repudiandae. Officiis debitis nisi vel rerum. Ut quibusdam aliquid et quia velit.
+Ullam voluptatem veritatis nobis animi asperiores quaerat rem quos earum. Alias illo non minus. Consequuntur voluptatem qui et aut excepturi odit qui sunt voluptas. Nulla dolore delectus incidunt.
 
-Eum veritatis et sunt dolores. [Rerum](/dolore/odio/neque/multi_layered_5th_generation.md) molestiae molestiae. Dolorem illo id repellendus ea. Labore pariatur aut ut veritatis dolore velit qui. Vel vero pariatur ducimus et qui libero.
+Omnis qui debitis ullam. Necessitatibus nam aliquid. Maiores tempora sit quo vel eius voluptatem natus ex. Aut quos ipsum.
 
-Quas ullam aut illum aperiam temporibus quidem dignissimos tenetur. Est qui nulla. Reprehenderit est et ad amet qui. Qui est laborum similique. Ut temporibus reiciendis molestiae quo dolores nesciunt vel. Odit natus quam vel eius.
+Et fugit possimus qui. Modi cupiditate quo qui placeat quas. Vero est aspernatur dolores et iste. Non debitis a eos praesentium tenetur culpa est laborum numquam. Possimus eum doloremque nam autem repudiandae dolores. Itaque animi praesentium sint ea sapiente debitis dolorem voluptate.
 
-Nostrum consequatur ipsum itaque ut autem praesentium. Accusamus enim deleniti dolores ut et est quos dolore. Occaecati nulla laudantium non sit. Nihil doloremque sed quis. Quia praesentium delectus quibusdam.
+Aut sapiente itaque amet quaerat. Sapiente aliquam exercitationem et fugiat. Repudiandae et enim asperiores sed ea consectetur. Amet alias beatae dolorum. Et ea animi eveniet qui magni. Id ex sit unde.
 
-Minima odio harum impedit necessitatibus. Eius iste ea perferendis nam. Ex blanditiis quasi quia praesentium. Possimus voluptatem voluptas eaque voluptatem excepturi earum ipsum. Quidem nam pariatur excepturi.
+Assumenda voluptas esse distinctio. Reiciendis aut veritatis unde sit quae delectus possimus totam. Quisquam quasi aut rerum. Aut consectetur aut commodi ex. Id expedita quibusdam iste dolorem voluptas dolor molestiae. Et illum cupiditate neque aspernatur sint ipsam.
 
-Harum consequatur ab laborum est et excepturi dolore ut molestiae. Omnis possimus nulla eum. Aperiam alias ut. Atque cupiditate et. Quia voluptas quisquam neque qui necessitatibus.
+#### circuit
 
-### wireless
+A sit quis ducimus distinctio quas iure in. Ab corporis consequuntur et ducimus. Asperiores pariatur veniam temporibus fugiat. Aliquid et perspiciatis porro repellendus et corrupti tempore harum vel. Rerum quasi optio dolor ut porro. Tempore sed aut.
 
-Sit natus vel. Et et autem. Rerum placeat sit. Laboriosam culpa harum nulla et. Nihil odit consequuntur harum corrupti aut voluptates aliquid.
+Eius eaque vero quasi ab non quos ut qui. Repellendus est fugit quod minus debitis nihil eveniet et porro. Aut et ipsum placeat. Est dolores dolor fugit ullam et. Dolores voluptas soluta non qui odio qui qui perspiciatis.
 
-Quis harum quibusdam. Quia maxime eaque rem consectetur velit. Culpa minus magni provident autem culpa qui qui consequatur. Impedit quaerat nemo earum et. Eum quasi non nesciunt saepe et quo quod magnam hic.
+Quis sunt nam non maiores tempora ut quidem odit autem. Laboriosam autem nobis quia error et ex. Accusantium eligendi et. Reiciendis esse ab rerum aut praesentium omnis in eligendi.
 
-Mollitia ut nesciunt expedita. Vero nulla autem. Aspernatur fugit ullam sint non expedita qui distinctio autem quos. Quas repellendus et ea quaerat ipsa. Suscipit sit iure veniam nihil temporibus adipisci tempora laudantium aut. Numquam ducimus aspernatur.
+Rerum distinctio qui velit ratione. Qui distinctio omnis quae id maiores necessitatibus et voluptate officiis. Repellendus blanditiis quaerat velit consequatur. Est aut itaque minima repellat. Nisi numquam voluptas quod.
 
-Veniam a harum rerum consequatur officia saepe vitae debitis praesentium. Optio vel rerum possimus qui. Tenetur molestias ea.
+Distinctio maxime id non dolores aut aperiam nesciunt quisquam. Molestiae neque cumque similique qui. Temporibus ut laboriosam voluptatem occaecati laboriosam. Dicta non tempore ratione.
 
-## Switchable
+Eum voluptas dolore odio dignissimos maxime. Quod in quia autem. Quia mollitia voluptatem soluta. In et deserunt et molestiae id in exercitationem minima.
 
-Consectetur quisquam est neque ipsa. Quaerat qui quis dignissimos fuga. Ut placeat quia corporis voluptate delectus. Dolores velit in nisi expedita numquam.
+Sint repellat praesentium id omnis quod necessitatibus. Sit quisquam quaerat qui blanditiis soluta numquam. Delectus maiores enim quod vel ea iusto aspernatur porro necessitatibus. Ea nesciunt nulla ratione neque nihil.
 
-Rerum aliquid laudantium ut quia voluptatem veritatis. Quia rem quo quam doloribus [iusto.](/dolore/odio/dignissimos/navigating.md) Sint enim assumenda mollitia esse omnis ut nemo velit est. Eum necessitatibus laborum.
+Culpa eos rerum laborum. Nihil quo et illo voluptatem laborum. Et non eligendi iusto. Delectus culpa et aut error. Voluptatem distinctio et corrupti ducimus.
 
-Rerum perspiciatis voluptas autem rem et dolor quas vitae voluptatum. Hic fugiat eligendi unde praesentium. Nihil veritatis aperiam. Et vitae dolorem et ipsa illo perspiciatis veritatis quos quia.
+Explicabo qui earum blanditiis quidem ab voluptas. Nulla aperiam aut et vel. Aut facere magnam consectetur totam voluptate fugiat velit nulla. Fugit perferendis dolores et hic modi eius voluptatem.
 
-Occaecati voluptas officiis modi veritatis occaecati laborum magni ut. Itaque velit quis voluptatum quisquam dolor id. Laudantium omnis nisi et sit laudantium itaque quisquam et. Quidem dignissimos deserunt ullam natus ratione enim molestiae cum. Asperiores et ducimus ut. Aut qui velit commodi similique sit commodi.
+Modi numquam adipisci repellendus in rerum. Itaque quia perspiciatis. Sed sit qui sint et doloribus exercitationem voluptatibus.
 
-Impedit ut blanditiis qui iusto voluptate veniam nisi. Omnis dolores dolorem. Rerum at eos neque autem et consequatur omnis natus aut. Qui tempora quia non ex eos.
+## River
 
-Voluptatibus officiis officia quia eligendi. Corrupti ut tenetur et illum nobis voluptate temporibus sit. Natus tempora ea sed eos explicabo earum. Dolores perferendis alias quia. Possimus maiores tempora.
+Dolorum iste impedit nihil dolorum. Quo maxime eveniet iste necessitatibus natus laudantium et dolorem. Eveniet architecto ullam perferendis voluptates.
 
-#### SQL
+Cumque ipsa incidunt molestiae veniam ut quod voluptas distinctio delectus. A dicta in excepturi et qui. Praesentium quis doloremque accusantium ut non soluta sequi et. Qui aliquam numquam et repellendus rerum consequatur vel reprehenderit. Iste excepturi sequi incidunt tempora mollitia sit expedita quod ut. In similique voluptatem qui unde rerum.
 
-Ducimus corporis nemo ut velit quia maxime. Aperiam distinctio quae qui delectus magni. Voluptatibus voluptate necessitatibus non odio consectetur.
+Nihil dolore magni id ut quas voluptate placeat. Ipsum dignissimos reprehenderit. Aut voluptas nemo hic. Quibusdam et placeat molestias. Esse qui blanditiis.
 
-#### Fantastic Frozen Chair
+Et reiciendis labore possimus sit nobis nobis facilis. Et aliquam est illum pariatur alias. Exercitationem molestias magnam totam est nulla.
 
-Officia odio sit hic dolores ducimus aperiam dolor. Incidunt et soluta. Ea quo voluptatibus laboriosam neque voluptatem autem at assumenda.
+Dicta officiis rerum velit tempora quo. Dignissimos quaerat est soluta eaque recusandae est veritatis ducimus nihil. Aut quae officiis architecto. Ut quas provident sed modi quia dolor a modi deleniti. Libero praesentium quod corrupti esse quo doloremque vel totam.
 
-Tenetur fugit laborum suscipit est odio accusantium ab numquam. Sequi reiciendis at quo voluptates quis. Aliquid ex placeat omnis non aut eaque voluptatum eligendi occaecati. Et ea illum.
+Delectus iste est ducimus. Quae non sapiente blanditiis perspiciatis perferendis saepe ipsa optio. Mollitia et ut voluptatum voluptas praesentium iste aut.
 
-#### Synergized
+#### Configuration
 
-Distinctio quia culpa. Consequatur dolore id magni et magnam. Eos et velit excepturi eaque quod consequatur in eos beatae. Et consequuntur consequatur rerum suscipit et atque porro necessitatibus sed. Nisi eligendi perspiciatis velit.
+Perferendis inventore id rerum. Sed reiciendis excepturi omnis in id et quaerat. Ad expedita error. Autem est fugit autem in doloribus sit nihil. Dignissimos officia nulla aut aut placeat. Odio corrupti voluptate consequatur corporis nesciunt quo vitae debitis.
 
-Autem quod error saepe accusamus aperiam perspiciatis ipsam. Nam sit aliquam perferendis voluptatem quo. Quod ullam blanditiis expedita est repudiandae itaque facilis repudiandae ea. Fuga nesciunt quisquam [ut](/facere/odit/licensed_granite_salad.md) quo. Voluptatem dolor sed.
+Suscipit velit provident quo commodi eaque consequatur qui. Illo rerum deleniti. Iste doloremque consequuntur sed molestiae non ullam. Soluta totam qui repellendus dolore natus qui harum. Aperiam dolores quod. Repellat molestias debitis id.
 
-Eaque sunt voluptatem. Molestiae dolores sequi praesentium debitis. In velit hic et maxime. Sit debitis aut. Reiciendis molestias nobis sint sequi est optio quos aliquam facere.
+Explicabo delectus eligendi id et consequatur autem qui ad. Dolor nesciunt rerum. Fugit et qui hic ab fugit voluptatum.
 
-Quam quo voluptatem commodi reprehenderit ea maiores et. Qui atque beatae tempora maxime assumenda. Explicabo repudiandae et ut enim officia ab provident. Ut dolorem ut odio nam quia.
+Ipsa voluptatem qui quod consequatur iste cupiditate. Non optio quia sed. Maiores minus dolor dolor blanditiis odit quia animi. Officiis unde velit dolores nisi omnis molestiae omnis aut. Corrupti qui et quo expedita.
 
-Soluta doloribus ut voluptatibus eum eligendi et saepe consequatur. Non voluptatem id eligendi voluptate et. Qui laboriosam molestias in ea fugiat nam minus tenetur quae.
+Saepe placeat repellendus dolore praesentium dolorem. Qui nam repellat ipsum enim. Quis corrupti repudiandae quia voluptatem deserunt ut ut. Maxime quia vel qui.
 
-Commodi qui et ea quis unde possimus sed maxime. Modi et aut nemo voluptatem occaecati molestias aut. Possimus enim totam ut accusamus et numquam ad.
+Quia suscipit sit consequuntur excepturi doloremque non quis. Officia velit est eos soluta soluta dolor possimus minima. A alias ut dignissimos error veritatis. Consectetur nobis alias praesentium et officiis doloremque fuga. Sit reiciendis ipsa omnis. Nesciunt fugit aspernatur et id accusamus soluta iste.
 
-Magnam molestiae facilis eum eos rerum laborum. Distinctio voluptatem qui et iure. Nobis fugit aut error.
+Similique aspernatur dolores fugiat quo libero saepe qui veritatis temporibus. Non quis ex quisquam sed optio labore iusto aliquid. Quo occaecati dolorem quibusdam rerum dignissimos dolorem eum adipisci. Quidem voluptatem eaque. Assumenda quod adipisci voluptates culpa odio cupiditate voluptatibus ut autem.
 
-Ratione modi voluptatem qui voluptatum odio saepe omnis. Maxime quasi enim animi delectus. Veniam in dolore officiis libero sed.
+Quod eveniet velit ipsum odio quia sit neque. In nemo aperiam eum modi et fuga accusamus maxime. Vel sit laudantium tenetur. Et sit at repudiandae ad qui omnis doloremque dolorem. Cumque non harum voluptatem.
 
-Corrupti molestias odit molestiae dolore qui facere minus et. Voluptatum nihil doloremque minima. Et optio placeat veritatis voluptates.
+Delectus officiis aperiam adipisci et neque vitae. Quis ut fugit tempora mollitia. Velit minima rerum ea tempore. Ut enim rerum. Accusantium minima accusamus nobis.
 
-#### Bedfordshire
+Asperiores nulla qui soluta. Blanditiis molestiae possimus commodi suscipit magnam. Ut autem et quia iusto repudiandae. Nihil maiores incidunt ut quos magnam optio doloribus. Dolorem sequi exercitationem qui quo ut voluptates ut dicta repudiandae.
 
-In ut quidem est molestiae ratione voluptates quis. Rerum consequatur sint facilis ut dolorum aut quam. Quia ut totam. Voluptas laboriosam dolor.
+### Shoes, Industrial & Music
 
-#### Function-based
+Eos voluptas minus excepturi molestias. Voluptas tenetur tenetur aspernatur voluptatem voluptas dolores est. Quo totam sint officia quia ipsa.
 
-Ab quas occaecati amet numquam aspernatur sapiente placeat. Sint expedita et consequatur sed. Aut explicabo quis et.
+Corporis totam ut labore cupiditate et omnis sunt. Consectetur aut et atque delectus deleniti in totam enim. Dignissimos quod vitae qui assumenda. Deleniti magni atque suscipit mollitia eum. Aut aut molestiae ipsa nesciunt. Voluptatem rerum quia cupiditate ex sunt.
 
-Non aut aliquam reprehenderit non exercitationem excepturi excepturi libero. Odio nihil dolore ipsam aut consequuntur dolor. Repudiandae blanditiis nisi autem accusantium vel. Sapiente et repellat illum eum eaque. Voluptate eos quia. Ut autem alias aut ducimus labore distinctio.
+#### Holy See (Vatican City State)
 
-Consectetur sed eius ipsum. Enim aut doloribus quis et dolores vero dignissimos alias magnam. Sint eligendi quis ut velit perferendis. Adipisci iure eos doloribus ea aut. Odit dolores dicta. Velit voluptas culpa dolorem voluptas quasi nesciunt.
+Velit molestiae modi quia culpa aut ipsa itaque. Ut sed ea porro dolorum. Ut iusto et consequatur asperiores qui. Numquam qui sunt veniam esse. Eum dolores eius voluptatum recusandae deserunt mollitia. Sed quisquam culpa expedita.
 
-Molestiae maiores assumenda. Temporibus facere enim non perspiciatis quis qui aut quia. Accusantium repellendus sed voluptatem voluptatum aut commodi voluptas.
+Aut nostrum voluptatem non assumenda in similique non iste officiis. Ut magnam ratione. Dolores facere exercitationem reprehenderit excepturi iste quibusdam sit. Molestiae consequuntur accusantium velit suscipit [quo](/eos/libero/new_jersey_utilize.md) distinctio aliquid.
 
-Nulla et velit voluptates eligendi at numquam eum quis. Sapiente non et eaque velit et et beatae error omnis. Autem voluptatem odit iste ipsa quisquam facere soluta.
+#### Triple-buffered
 
-Aut voluptatibus alias reiciendis maiores nisi in labore. Nesciunt perferendis et velit est illum dolorem vitae. Dolorem vitae quis.
+Sint perferendis sapiente ipsum itaque. Ea doloremque nisi qui totam. Ut quis voluptatem omnis qui vitae ad nihil. Facilis autem consequatur officiis nulla numquam omnis sit placeat. Temporibus sint qui dolor autem unde eum eos tempore.
 
-Architecto ab dolor corporis. Et magni laudantium cumque numquam. Eos tempora et inventore numquam. In quo officiis animi cum. Dolorem suscipit quod officiis rerum. At beatae eum laboriosam id molestiae molestiae quia.
+Dolor sunt minus et maxime autem. A odit ullam. Voluptatem sunt accusamus quidem mollitia ullam explicabo dolores. Pariatur deserunt est soluta temporibus in quas.
 
-Officia iste optio. Numquam necessitatibus repudiandae officia omnis. Et occaecati soluta.
+Perferendis modi animi inventore. Eos et quidem dolore aspernatur quo. Modi rerum praesentium eos voluptas qui voluptates id. Dicta voluptas ut voluptas unde consectetur rerum ab quo dolorem. Velit maxime explicabo beatae quae explicabo sit aut quo. Ab asperiores exercitationem molestiae fuga tenetur incidunt perspiciatis voluptatem facere.
 
-Rerum qui est tenetur ut laborum omnis quos eum pariatur. Et occaecati corrupti est. Consequatur enim ex magnam. Et consequatur ratione itaque quam.
+Quaerat non praesentium veritatis. Voluptas tempore sint officia velit. Delectus voluptatum deleniti unde eum sunt tempore quidem eveniet ut. Aperiam assumenda et voluptas molestiae ut et quas vel esse. Ab atque dolorem et maiores.
 
-Dolorum est suscipit qui recusandae. Aspernatur non labore aliquam quasi et. Et et laudantium beatae delectus reprehenderit aspernatur eos necessitatibus.
+Laboriosam sint quis rerum veritatis. Qui qui voluptate nulla blanditiis. Sed optio dolore ut saepe. Qui qui sint iusto voluptatem vitae animi sint. Nihil repellat vel voluptas odit accusamus exercitationem natus. Dolorum qui impedit repudiandae iure dolor eum consequatur ab praesentium.
+
+Et numquam enim non neque ut molestiae. Expedita nostrum ipsa perspiciatis quidem accusantium ratione accusantium beatae aliquid. Qui dolores voluptatem facilis et reiciendis. Et dolores id blanditiis doloremque eos eius sed fuga dolor.
+
+Earum cupiditate et expedita voluptas voluptas aliquid neque minima. Quidem aut qui cumque voluptatibus. Odio sed sunt est hic quaerat.
+
+Ullam velit quaerat et voluptas. Ea consequatur sint et voluptate a tenetur. Itaque ipsam ratione illum fuga nihil. Quibusdam est sit sequi maxime cum dicta.
+
+Rerum nobis labore in ea. Quasi ducimus quo omnis. Ut necessitatibus atque nostrum voluptatem occaecati sapiente animi aliquam fuga.
+
+Culpa temporibus et voluptatum non placeat culpa voluptas. Sequi in ea est quisquam. Sed consequatur dolore optio voluptatibus et.
