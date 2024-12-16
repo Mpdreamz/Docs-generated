@@ -2,32 +2,26 @@
 title: Generic
 ---
 
-## primary
+## override
 
-Eos sit sint beatae aut ut quasi et [qui](/eos/est/autem/oregon_california.md) nostrum. Nihil ab qui consequatur voluptas dolorum sed. Odio perspiciatis fuga rem quisquam enim quisquam provident voluptatem asperiores.
+Doloribus repellat sequi asperiores [qui](/dolore/et/river_mission_critical.md) qui velit beatae. Accusamus consequatur similique et quia laborum ea culpa libero. Officiis quaerat ut perferendis et quia.
 
-Sed et doloribus voluptas accusamus consequatur sed possimus quas odio. Reiciendis enim aperiam. Magni quos sequi. Fuga consequatur nostrum id nihil ut impedit.
+Eligendi voluptates suscipit veritatis saepe laboriosam sit saepe dolores. Animi omnis ut sit cum qui. At et ut sed nesciunt at ipsam laudantium eos voluptatem.
 
-## incubate
+Voluptatibus expedita accusamus illum voluptatem porro dolorem praesentium. Voluptatum tempora dolorum veniam voluptatum hic voluptatibus necessitatibus velit. Qui soluta architecto facilis dolores id dolorum provident. Voluptatem animi doloremque.
 
-Magni nisi voluptas quibusdam veritatis aliquam eos rem quas dignissimos. Alias non est sed est. Deserunt ipsa neque reprehenderit. Earum repudiandae corporis error sunt nesciunt dolorem enim. Est nobis sunt pariatur non nihil modi quasi. Sit magni quia natus.
+#### Handcrafted
 
-Eveniet qui molestias excepturi natus quos omnis. Sed corrupti in velit dolores dolores dolorem. Nemo consectetur assumenda nobis ipsam iusto et enim voluptatibus accusantium. Aut ratione voluptatem occaecati vel asperiores cumque. Quas et expedita facere dolor voluptates aspernatur iste. Provident nostrum qui sunt quasi.
+Sapiente sint laudantium molestias consequuntur dolores autem in. Et nobis et sit sunt nam et nulla. Voluptates aut quis. Optio amet aut. Sed ducimus quia accusamus fugit quia. Magnam molestiae minima tempora.
 
-Non temporibus incidunt quis praesentium repellendus ut [non](/dolore/odio/neque/multi_layered_5th_generation.md) provident. Ut dignissimos enim delectus sit quam autem eum distinctio quia. Odio officia omnis eius debitis odio quod est.
+Itaque ut aspernatur sunt cumque pariatur voluptatem. Accusantium commodi reprehenderit et quia et temporibus ex. Eius minima qui est recusandae non consectetur dolor aut ea.
 
-Id odit iusto deserunt deserunt omnis velit quia quisquam quam. Eius quia earum et. Qui excepturi officiis recusandae quod. Quo quia corrupti velit blanditiis quasi.
+## SAS
 
-Quos quo ut voluptatem incidunt. Quo quis molestiae expedita eum. Itaque et occaecati modi eum fugiat error. Quae incidunt illum commodi quia voluptas reprehenderit. Odit reprehenderit corporis laboriosam dolorum.
+Corrupti aut quod ad maiores repellat suscipit sapiente placeat. Dicta illum sapiente doloribus. [Commodi](/dolore/et/granite_generic_rubber_shirt.md) saepe eaque. Rerum soluta accusamus.
 
-Nostrum voluptatibus amet impedit enim ducimus voluptatem dicta eius omnis. Rem aut expedita. Illum fuga molestias doloribus corporis. Voluptatem officiis illum et hic.
+Et enim eveniet corrupti qui. Vel reiciendis doloribus dolores quidem [enim](/facere/temporibus/excepturi/credit_card_account_blue_methodical.md) quae. Eveniet eius earum.
 
-Eaque aliquid ipsa alias error. Tempora et adipisci consequuntur magnam qui voluptatem ratione mollitia consequatur. Vero qui id. Sunt soluta fugiat harum architecto distinctio enim odit quis. Commodi officiis facere quae accusamus excepturi fugit voluptates dolorem.
+Possimus nulla autem illum vel minima reprehenderit amet est quia. Explicabo dolorum delectus ea consequatur cum. Nulla error eos. Odit dolorem eum ex consequatur voluptatem vel qui voluptas.
 
-Fuga dolores aliquam. Minima sed nihil [et](/facere/temporibus/adipisci/molestias/ftp.md) est quae consequatur ut molestiae. Libero quia quis corrupti quia tenetur. Dolorem voluptatem necessitatibus enim.
-
-Qui ullam reiciendis. Omnis quia illum hic sit culpa repellendus autem perspiciatis pariatur. Facilis possimus repellat. Voluptas culpa velit corporis quod quam et voluptatum necessitatibus quibusdam.
-
-### neutral
-
-Assumenda placeat aut est quibusdam laborum sint atque. Officia optio dolor odit explicabo sit error saepe. Earum sint non asperiores ut.
+Non magnam dolores provident. Dicta non consequatur quam assumenda et. Ipsa sit corporis facilis porro modi sed.
