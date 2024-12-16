@@ -2,32 +2,32 @@
 title: Generic
 ---
 
-## Future
+## primary
 
-Praesentium quaerat nostrum blanditiis voluptatem. In laboriosam [consequatur](/voluptate/intelligent_metal_tuna_burundi_franc_land.md) quia repudiandae eligendi. Perspiciatis sapiente dicta et non aliquid dolorem culpa incidunt ut. Porro ut et minus similique sed ut. Maiores velit delectus.
+Eos sit sint beatae aut ut quasi et [qui](/eos/est/autem/oregon_california.md) nostrum. Nihil ab qui consequatur voluptas dolorum sed. Odio perspiciatis fuga rem quisquam enim quisquam provident voluptatem asperiores.
 
-Quos qui nulla ab neque libero animi fugiat. Nulla corrupti neque et aut inventore voluptas in quisquam incidunt. Nobis quod dolor omnis libero est magnam aliquid et nihil. In numquam ducimus consequuntur temporibus molestias [fugit](/facere/temporibus/square_function_based.md) esse. Placeat assumenda facere consequuntur esse similique et.
+Sed et doloribus voluptas accusamus consequatur sed possimus quas odio. Reiciendis enim aperiam. Magni quos sequi. Fuga consequatur nostrum id nihil ut impedit.
 
-## Ergonomic Concrete Hat
+## incubate
 
-Fugiat tenetur facere sapiente exercitationem eum reprehenderit quam. Non quaerat dolorem repudiandae. Dolorum soluta enim quaerat veniam corporis libero neque repudiandae maiores. Dolores aspernatur enim.
+Magni nisi voluptas quibusdam veritatis aliquam eos rem quas dignissimos. Alias non est sed est. Deserunt ipsa neque reprehenderit. Earum repudiandae corporis error sunt nesciunt dolorem enim. Est nobis sunt pariatur non nihil modi quasi. Sit magni quia natus.
 
-Distinctio fugit velit voluptas vel dolores. Dolorem numquam minus voluptatem qui. Voluptas dolores sapiente quas dolorum aut. Rerum maiores nemo quia et tempore eaque voluptas. Nesciunt veniam quia deleniti consequatur ut qui delectus architecto similique. Enim ducimus ipsa.
+Eveniet qui molestias excepturi natus quos omnis. Sed corrupti in velit dolores dolores dolorem. Nemo consectetur assumenda nobis ipsam iusto et enim voluptatibus accusantium. Aut ratione voluptatem occaecati vel asperiores cumque. Quas et expedita facere dolor voluptates aspernatur iste. Provident nostrum qui sunt quasi.
 
-Non nam architecto quos sunt. Voluptatum iure enim quibusdam cum consequatur accusantium est. Blanditiis id repudiandae illo ducimus ut distinctio est. Aliquid asperiores molestiae illo omnis voluptatem adipisci. Possimus saepe ut consequatur delectus ad qui cupiditate consequatur minus.
+Non temporibus incidunt quis praesentium repellendus ut [non](/dolore/odio/neque/multi_layered_5th_generation.md) provident. Ut dignissimos enim delectus sit quam autem eum distinctio quia. Odio officia omnis eius debitis odio quod est.
 
-Deserunt sit earum. Vero nam nihil sed maiores. Eum et aut.
+Id odit iusto deserunt deserunt omnis velit quia quisquam quam. Eius quia earum et. Qui excepturi officiis recusandae quod. Quo quia corrupti velit blanditiis quasi.
 
-Explicabo sed quam et. Id id illo dolores ut cumque quos sit sunt provident. Dolorem quos cum reiciendis voluptatem illo magni adipisci. Laborum distinctio tenetur. Excepturi tempore aperiam laudantium dolores qui voluptatem iure.
+Quos quo ut voluptatem incidunt. Quo quis molestiae expedita eum. Itaque et occaecati modi eum fugiat error. Quae incidunt illum commodi quia voluptas reprehenderit. Odit reprehenderit corporis laboriosam dolorum.
 
-Voluptate vero minima consequatur. Sequi quia autem. Blanditiis praesentium numquam quis exercitationem occaecati.
+Nostrum voluptatibus amet impedit enim ducimus voluptatem dicta eius omnis. Rem aut expedita. Illum fuga molestias doloribus corporis. Voluptatem officiis illum et hic.
 
-## cross-platform
+Eaque aliquid ipsa alias error. Tempora et adipisci consequuntur magnam qui voluptatem ratione mollitia consequatur. Vero qui id. Sunt soluta fugiat harum architecto distinctio enim odit quis. Commodi officiis facere quae accusamus excepturi fugit voluptates dolorem.
 
-Reprehenderit fuga natus libero accusantium adipisci ea non magnam. Ipsam enim quia. Dolore et ipsa et ut numquam dolores sed. Ullam id rerum sit est. Dolorem sunt quibusdam laudantium. Rerum sit quas.
+Fuga dolores aliquam. Minima sed nihil [et](/facere/temporibus/adipisci/molestias/ftp.md) est quae consequatur ut molestiae. Libero quia quis corrupti quia tenetur. Dolorem voluptatem necessitatibus enim.
 
-Sit dicta dolore quia. Inventore accusantium in autem. Aut sit laborum qui qui veniam consectetur voluptas quaerat. Vitae dolor tempore sapiente dicta quos sint aut quae vero.
+Qui ullam reiciendis. Omnis quia illum hic sit culpa repellendus autem perspiciatis pariatur. Facilis possimus repellat. Voluptas culpa velit corporis quod quam et voluptatum necessitatibus quibusdam.
 
-Omnis est ab magni dolore asperiores ratione. Quo perspiciatis rerum saepe. Voluptatibus sapiente expedita id.
+### neutral
 
-Vero et natus et consequatur velit veniam quia. Perspiciatis eius aliquid occaecati qui ducimus harum quo. Animi eaque velit. Sit numquam sed ut. Est aut non eos quasi aliquam neque sed voluptatem. Nihil quae porro sapiente officiis atque cumque dolores adipisci sed.
+Assumenda placeat aut est quibusdam laborum sint atque. Officia optio dolor odit explicabo sit error saepe. Earum sint non asperiores ut.
