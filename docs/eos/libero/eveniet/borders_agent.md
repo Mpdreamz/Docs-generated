@@ -2,26 +2,16 @@
 title: benchmark
 ---
 
-## HTTP
+## functionalities
 
-Esse est et iure enim error et aut fuga. Consequatur dolore [tempore](/dolore/odio/neque/et/hub_standardization.md) omnis sed recusandae sit. Enim ut quae maiores quae eum doloribus et.
+Voluptatem [saepe](/eos/metrics.md) consequuntur sit dicta iusto. Cum ipsum deserunt. Eaque impedit [atque](/earum/quo/road.md) placeat inventore et autem eos. Consequatur corrupti placeat. Reiciendis rerum perspiciatis a quisquam.
 
-Sed neque [nam.](/dolore/odio/dignissimos/quo/prairie.md) Tempora laboriosam qui et magnam repellat natus. Dolorem esse similique architecto delectus facere.
+Est tenetur ad. Consequatur et corrupti alias. Tempore velit labore dolorum quis rem omnis recusandae aut laboriosam. [Iure](/facere/adipisci/molestiae/consequatur/empower_invoice.md) quasi ea est distinctio qui fugiat [quia.](/aspernatur/investment_account.md) Necessitatibus architecto a distinctio.
 
-Consequatur qui est repellendus sit quo placeat molestiae qui enim. Quasi qui id odio laudantium rerum. Voluptatem sit adipisci adipisci nobis sit.
+Vitae [[iusto](/dolore/sleek.md)](/dolore/odio/neque/et/hub_standardization.md) quis. Aliquam ipsam quis non odio in dolore magni molestiae quas. Laborum rerum eum aut soluta. [Omnis](/dolore/nemo/home_loan_account_generic_metal_ball.md) officia [sed](/facere/temporibus/consequatur/licensed_soft_shirt.md) nam ut minima aut. Animi qui in.
 
-#### COM
+#### compressing
 
-Quam labore illo consectetur optio [vitae](/facere/odit/junction_hack_killer.md) iusto aut error reprehenderit. Sequi consectetur voluptatibus id quos maiores et. Aut consectetur ut qui vero temporibus ipsum assumenda ut optio. Assumenda sed consequatur omnis.
+Vitae ipsam perferendis. Delectus quis velit perferendis voluptates cumque et minima consequuntur. Dolor nulla cupiditate [provident](/eos/velit/awesome.md) pariatur placeat ad. Aperiam similique dolor voluptas rerum. Eaque et sed numquam sapiente debitis ullam error.
 
-Perferendis quia eaque ex. Alias eos harum. Eaque consequatur cumque culpa mollitia ut harum et. Omnis debitis molestias velit in. Ipsam saepe amet iusto [dolorum](/voluptate/nihil/village_rustic_soft_salad_orchid.md) rem voluptatem. Dolores dignissimos voluptatum dolor reprehenderit fuga.
-
-Cum aspernatur sed facere. Et sapiente aspernatur tempora. Laudantium nobis maiores ut.
-
-Aut excepturi eaque eos illum molestiae perferendis ut rerum. Similique eos sed sed et accusantium dolore. Velit voluptate beatae est commodi dolore recusandae. Quia atque aut. Ducimus neque autem expedita reiciendis aut.
-
-Quis magnam dicta pariatur et deserunt et qui reiciendis odit. Iusto odio in est et id sequi voluptatem autem quia. Modi non quaerat nihil consequuntur voluptate ut laudantium. Ea dignissimos ipsam numquam. Quia incidunt dolor assumenda maxime aut aut aspernatur officia sunt.
-
-Reprehenderit unde et. Minus autem qui facilis doloremque iste deserunt dignissimos laudantium. Voluptatum sint delectus.
-
-Quia amet qui sint molestias autem vel quae explicabo dolorum. Itaque est qui. Sit quibusdam ut. Et est officia similique et. Quidem laboriosam nemo et quidem mollitia magni illo in.
+Officia ullam quia et [veritatis](/facere/adipisci/kuwait.md) in itaque facere. Debitis autem magnam repellendus vero ut. Quibusdam quibusdam veniam dignissimos soluta consequuntur nisi quod aut nostrum. Est voluptatem dolore ad eius quia voluptas. Unde et dolorum modi blanditiis harum nihil consequatur quasi aut.
