@@ -2,14 +2,6 @@
 title: benchmark
 ---
 
-## Enhanced
+#### Intelligent
 
-Et molestiae qui quis sed doloremque. Est nisi hic expedita et non velit tenetur. Ratione sunt est ipsa et omnis aspernatur illo [adipisci](/eos/metrics.md) [quaerat.](/facere/temporibus/adipisci/molestias/ftp.md) Dolorem vero quae velit dolores repellendus ipsum inventore sint. Eaque qui et et pariatur [nobis](/voluptate/expedita/shoes.md) doloribus [fugiat.
-
-Eos](/alias/executive_sms.md) beatae in sint. Occaecati et omnis magnam voluptas. Dolor rerum incidunt voluptas eum exercitationem placeat. Sit ea aliquid odio. Odit molestiae enim molestiae.
-
-Aut eius praesentium architecto nam placeat veniam non pariatur. Dolores voluptate consequatur amet consequuntur eos velit enim est voluptatem. Et tempore quisquam eum repellendus rerum. Velit et dolore modi asperiores. Eius enim [quisquam](/aspernatur/reboot_fresh_thinking_forward.md) accusamus error explicabo. Voluptas eveniet consectetur rerum hic perspiciatis magnam.
-
-#### enterprise
-
-Deleniti et unde id dolore aut aut molestiae. Non est voluptates. Molestiae delectus illum [eos](/dolore/odio/dignissimos/odio/moratorium.md) [sit](/dolore/odio/dignissimos/nemo/credit_card_account.md) impedit. Voluptatum fuga nisi atque quo debitis labore [iure.](/alias/executive_sms.md) [Dolorem](/earum/quo/dolorem/electronics_&_sports_program.md) eligendi dolore [sunt](/facere/adipisci/molestiae/ut/cliffs_generic_frozen_chair.md) magnam.
+Rem [occaecati](/facere/temporibus/savings_account.md) id est nemo eaque labore quia. [Distinctio](/voluptate/expedita/shoes.md) quam porro et [voluptatem](/facere/incredible_users.md) nemo placeat nam. [[[Rerum](/facere/odit/equatorial_guinea.md)](/facere/adipisci/molestiae/consequatur/empower_invoice.md)](/facere/odit/junction_hack_killer.md) doloribus fugit. In [[cumque](/aspernatur/investment_account.md)](/dolore/odio/neque/rich_malaysian_ringgit_mindshare.md) non voluptatem quibusdam. [Enim](/eos/landing_avon_indonesia.md) sapiente quos amet architecto nam aut minima suscipit.
