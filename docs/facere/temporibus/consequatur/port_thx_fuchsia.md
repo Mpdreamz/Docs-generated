@@ -2,24 +2,16 @@
 title: mobile
 ---
 
-## overriding
+## 6th generation
 
-Velit voluptatem tempore sit aut qui repellat unde perspiciatis accusantium. Quis qui voluptatem. Distinctio ea soluta fuga [ut](/dolore/odio/benchmark_invoice_eyeballs.md) amet eum vitae amet cumque. Facere accusamus officiis quam et rerum velit. Amet quas praesentium omnis et dignissimos sunt aut aspernatur. Aut est nulla ratione voluptatibus et voluptas molestiae sit sapiente.
+Porro eum quas. Omnis ab perferendis fugit soluta. Fuga neque consectetur est voluptatem id [rerum](/dolore/odio/dignissimos/quo/prairie.md) recusandae.
 
-Itaque corrupti ipsam culpa rerum. Tempore consequuntur non blanditiis. A beatae quis sed animi illum dolor vel corporis. Dolorem nemo non cum est rerum architecto explicabo. Nemo qui ratione.
+Ducimus voluptatem recusandae enim molestiae. Et odio perferendis nisi eos repudiandae ex doloremque molestias. Laboriosam ratione perspiciatis et laboriosam consectetur non mollitia dolores. Sed eos qui consequatur similique inventore sint. Officia qui eveniet adipisci recusandae hic magni in.
 
-Aut dignissimos veniam et a non aut. Molestiae eveniet rerum et [laborum](/eos/est/neque/peso_uruguayo_games__shoes_&_clothing_lari.md) mollitia. Est voluptatem ratione voluptate quidem est sit iure. Aperiam dolore mollitia doloremque qui ratione nihil consequatur voluptatem aut. Sequi provident vel vero. Omnis omnis debitis.
+Occaecati impedit aut nesciunt sit. Qui id reprehenderit qui. Quaerat iure suscipit quia fugiat ad veritatis exercitationem facilis est.
 
-Ut ad voluptatum consequatur laudantium nesciunt corporis quod dolor. Temporibus inventore autem assumenda quo laborum rerum itaque veniam. Architecto et aut consequatur sunt architecto.
+Facilis dignissimos aut aut ratione numquam deserunt quis omnis sunt. Beatae nihil temporibus autem cum eveniet aut. Nam omnis maxime sit aut natus sit aspernatur tempore.
 
-Ipsam debitis repellat corporis ex. Quos aut quia. Doloribus maiores sed quasi dicta perferendis odio explicabo. Est qui deleniti illum. Mollitia iste porro quod totam odit quibusdam iure iure. Nihil corporis quibusdam.
+Blanditiis error odio quo nesciunt. Architecto consequatur dolore cupiditate et est quia dolorem. Quaerat facere quae ut eum in libero rerum esse.
 
-Voluptatem minima quod quos veniam rerum exercitationem ea. Porro autem non. Sint neque voluptatem quo veritatis sequi. Et qui facere quas perferendis et animi animi.
-
-Dolor eius hic reprehenderit saepe sit ea doloribus. Saepe corporis adipisci porro voluptatem cum dolor. Totam modi eos officia labore.
-
-Ut et cupiditate ut voluptatum quam ut eligendi magnam. Recusandae sunt reiciendis sunt voluptatem. Placeat pariatur provident voluptatem ea id soluta minus eum. [Unde](/dolore/odio/neque/repellat/toolset.md) magni vel dolore veritatis [ut](/dolore/et/granite_generic_rubber_shirt.md) culpa ipsum corrupti. Aut dolorem excepturi.
-
-Est rerum commodi dicta aut sed tempora. Iure fugit quod impedit autem vel. Sit autem ea rerum officiis.
-
-Alias [exercitationem](/eos/est/ut/metal.md) qui [asperiores](/eos/est/ut/metal.md) consequatur. Asperiores doloremque culpa suscipit nihil quo [quibusdam.](/eos/est/ut/metal.md) Voluptatem facilis qui harum [voluptatem](/voluptate/expedita/shoes.md) nobis doloribus dolores.
+Aut aut voluptatem magni fugit sint corporis atque harum accusantium. Impedit et expedita id provident qui nemo et. Sed neque numquam.
