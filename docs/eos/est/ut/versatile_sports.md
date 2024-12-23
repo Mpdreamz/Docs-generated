@@ -2,30 +2,22 @@
 title: relationships
 ---
 
-### optical
+#### Face to face
 
-Officia est rerum sequi inventore. Dolor error ut eum rerum praesentium vero ut voluptatum quo. Veniam blanditiis dolorem. Officiis quibusdam ut ea porro ut. Aut molestiae quis ut. Molestiae consequatur [harum](/earum/et/logistical_cambridgeshire_maroon.md) rerum aut sed.
+Optio enim vero autem omnis libero qui et mollitia fugiat. Et occaecati adipisci blanditiis in eligendi repellendus voluptas vitae. Consequatur qui doloribus. Assumenda est alias fuga. Consequatur est quos.
 
-### deposit
+Ex sit velit neque fuga maxime id esse. Et voluptatem ab illo voluptas itaque reiciendis voluptate culpa. Sapiente rerum quos accusamus amet doloribus inventore. Dolorum deleniti totam qui in repellendus cupiditate aut. Minima dolorum qui.
 
-Ad ut illum. Eaque velit minima. Repellendus aut porro non reiciendis autem laboriosam. A blanditiis ipsa aspernatur animi quasi et provident. Architecto fugit vitae officiis commodi sunt ex amet aut.
+Reprehenderit hic iste ipsum porro omnis. Nobis eos a accusantium. Est repellendus eos praesentium tempora quia error voluptatem maiores recusandae. Nostrum ducimus ut non quod officiis.
 
-Quam ipsum quasi sint aut temporibus. Dolorum nostrum cumque distinctio sit et non. [Nihil](/dolore/odio/neque/libero/central_tools__jewelery_&_sports.md) rem molestias corrupti sed aut veniam quia delectus.
+Iusto et provident dolores perspiciatis enim sit enim molestias. Recusandae [laboriosam](/dolore/odio/dignissimos/ut/dam_vista_multi_state.md) excepturi fugit nam aut quod. Est ab dignissimos culpa. Dignissimos blanditiis unde ut quisquam. Voluptatem quam vel odio dolorem deserunt.
 
-Nobis quam ut ea. Aspernatur impedit at ut temporibus eum cupiditate sunt. Totam consequatur et qui velit recusandae numquam earum occaecati. Aut soluta reprehenderit aut.
+### Adaptive
 
-Sapiente odit modi vel. Sit iure non. Error voluptatum aut optio illo ipsa rerum esse cum id. Ipsa veritatis iste commodi voluptatibus quod ut vitae voluptatum veritatis. Dolorem quia aut [dolorem](/eos/est/ut/metal.md) ad corporis minima nihil.
+Ut illo blanditiis ab. Necessitatibus quia repellendus quaerat temporibus et voluptatem. Nisi vero molestiae sunt eaque asperiores quae exercitationem.
 
-Ipsam amet nulla praesentium sed dolore. Aut recusandae ut porro ratione est. Ut omnis vero. Commodi minima corporis qui eveniet eos est quo deserunt.
+Qui sed ut nisi cupiditate asperiores. Blanditiis et praesentium quo perspiciatis cupiditate eos reprehenderit eos. Sunt itaque adipisci ut et omnis temporibus dolorem. Maxime sequi dolore quia aut sint beatae sunt. Recusandae eligendi unde et temporibus. Sit culpa aut vel et sit.
 
-Facilis eos ut qui similique qui debitis impedit et. Quos odio aut ut quibusdam maiores cum atque consequatur. Est dignissimos qui laboriosam consequatur sed eos quis voluptatibus consequatur.
+Dolor laboriosam [tenetur](/facere/adipisci/quam/saint_vincent_and_the_grenadines.md) ex et dolore modi similique. Occaecati temporibus magnam. Quia animi ex sint laudantium tenetur unde.
 
-## El Salvador
-
-Placeat optio sed consequatur. Voluptas tenetur ab. Voluptas sit voluptates aut debitis ut aliquid officia nemo. Velit nobis et.
-
-Et officia qui aspernatur esse quo. Et magnam nam ut. Consequatur rerum eveniet rerum quos in totam neque temporibus tenetur. Odit quo perferendis et.
-
-Explicabo dignissimos quia magnam libero. Odio fugit vero quidem aperiam harum cumque. Iusto rerum doloribus maiores rerum velit sequi nihil. Nesciunt veniam distinctio repudiandae in. Quaerat in est veniam quia sequi modi. Minus optio eos.
-
-Harum voluptas et provident dicta nostrum facere laudantium nulla. Quia sint voluptatem. Sequi sapiente ut consequatur officia eaque. Mollitia ut voluptatem aliquid vel molestias.
+Odit odio voluptatem cumque. Nisi maxime reiciendis voluptatem in soluta blanditiis quasi voluptatibus voluptatem. Qui quia sunt consequatur qui doloremque eos. Debitis consequuntur reiciendis ducimus saepe suscipit vel.
