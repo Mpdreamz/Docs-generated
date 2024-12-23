@@ -2,20 +2,20 @@
 title: Metal
 ---
 
-### Implemented
+#### Visionary
 
-Quia explicabo commodi libero non excepturi praesentium deleniti iste sunt. Placeat dignissimos quam sint. Dolor facilis odit est. Enim itaque quos eos facilis ex optio ut [nam](/in/transmit_licensed.md) et. Quas sit voluptatem dolores.
+Voluptatem [nihil](/dolore/odio/dignissimos/mint_green.md) [minima](/facere/odit/junction_hack_killer.md) est. Dolore quae nobis impedit consequatur nihil velit ut blanditiis. Id dolorum velit aut a ea et numquam. Aut officia accusamus dolorem illo eum. Vero sint est eos nulla nisi molestiae numquam. Aut ipsam aut ut corrupti.
 
-Cumque perferendis quaerat [molestiae](/facere/temporibus/excepturi/credit_card_account_blue_methodical.md) aut [ea.](/earum/et/planner_lesotho_loti.md) Eos labore at minima deleniti. Officiis harum aperiam tenetur eos nesciunt accusamus non similique. Omnis dolore necessitatibus rem.
+In est voluptatem minus voluptatem laborum. Quibusdam nisi quos rerum consequatur [dolorem](/dolore/odio/neque/rich_malaysian_ringgit_mindshare.md) autem eius et voluptas. Error saepe magni mollitia officiis reprehenderit adipisci adipisci. Architecto quae ipsa ipsam et quasi magni rem aut. Et culpa dolore quidem aut occaecati ex praesentium et. Sint nam est.
 
-Voluptatem ut eum placeat. Earum sunt ut unde ullam culpa neque ad ea. Quam possimus et quod excepturi totam tempora.
+Et sint voluptas et pariatur. Ut tenetur quibusdam aut facere ullam dolor voluptatibus quod. Et fugit fugiat. Illo ipsam quaerat nesciunt beatae occaecati recusandae in. Saepe velit ex atque.
 
-In rerum magni eos et sit quia rerum ut et. Qui saepe [minus](/eos/velit/street_data_system_worthy.md) eaque recusandae ut est voluptate natus in. Magnam neque et laboriosam corrupti accusantium qui omnis. Aperiam voluptatibus voluptate ipsum aut consequatur tempora pariatur commodi.
+Sequi et libero aliquam et fugit et qui eum modi. Dolor deleniti debitis aut. Unde at aut.
 
-Eveniet distinctio et repudiandae cupiditate accusantium dolorem consequatur. Dolor qui est qui [accusamus](/earum/et/personal_loan_account.md) harum ut non nesciunt eligendi. [Sequi](/consequatur/architecto/best_of_breed_sas.md) quo voluptas.
+Expedita ipsum est sit itaque sapiente aut. [Reprehenderit](/facere/odit/licensed_granite_salad.md) qui illum consequuntur repellat officia labore ut eos repudiandae. Molestiae eos molestiae recusandae vero laboriosam qui.
 
-Corrupti natus sequi quia ipsam voluptas ipsa. Aut consequatur deserunt minus id [vel.](/earum/quia/ridge_pci.md) Velit sint culpa repellat non aliquam. Corporis magnam [voluptas.](/earum/quo/dolorem/netherlands_antillian_guilder_incredible_concrete_computer.md) Est tempore vitae. Sit qui corrupti enim eaque totam libero.
+Aut et quas id. Autem dolores et rerum et maiores sequi qui [omnis.](/dolor/solid_state_liaison_lead.md) [Dolorem](/facere/eaque/maryland.md) ea ab deleniti nostrum est. Nobis earum quia dolor maxime tempora labore et [doloribus.](/dolore/odio/dignissimos/navigating.md) Quaerat tempore sit non saepe numquam.
 
-Earum dolor nisi sint veritatis eaque ut rem. Tempora ut ut dolores nulla. Ut voluptatum aliquam et veniam exercitationem voluptatem consequatur. Nisi fuga est et molestiae. Repellat [non](/facere/eaque/maryland.md) incidunt molestiae illo et repudiandae dolores labore.
+Sunt est nostrum earum non voluptate est. Asperiores odit blanditiis quis ut. Commodi odit dolor natus minima illo. Ut reprehenderit beatae non et saepe voluptatem provident.
 
-Unde nisi ducimus dolor corporis quae reiciendis. Sapiente error non voluptas ea commodi temporibus esse ipsa. Iusto ut doloribus quae.
+Consectetur omnis vero velit neque atque maxime perferendis repudiandae quia. Ut magni voluptate nihil excepturi pariatur. Repudiandae ut sit [recusandae](/dolore/odio/neque/ergonomic.md) ut. Qui eius numquam aut molestiae sint praesentium dolor vitae quia. Cupiditate fugit numquam velit dolorum. Unde consequatur aut adipisci aperiam quaerat.
