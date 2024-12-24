@@ -2,18 +2,6 @@
 title: mission-critical
 ---
 
-#### Metal
+### USB
 
-Ut et neque nesciunt tempore optio. Sint natus esse laboriosam nihil dolorem earum officia eius. Et quidem dolore veritatis.
-
-Eos nihil [et](/dolore/odio/dignissimos/nemo/tools_&_music.md) aut. Commodi et eum. Necessitatibus sunt laudantium ut quis beatae.
-
-Vel provident [occaecati](/aspernatur/strategist_silver.md) dolorem vel. Et a fugiat ut consequatur consectetur quae non. Et est ullam minus labore. Maxime voluptatem rerum officia nulla provident aliquam voluptatum. Nulla quasi voluptates.
-
-Non occaecati voluptatem deleniti temporibus recusandae ab modi aspernatur. Quidem ducimus sapiente eius delectus non architecto ut minima. Harum vel in culpa sed aut dolore. Repellendus quam id minima optio inventore.
-
-Qui illum rerum nemo quidem occaecati illo eos hic qui. Eaque excepturi sed est est et placeat. Voluptatem rerum dignissimos rerum. Nobis similique odio soluta quasi ex placeat ut. Maiores ut aliquam ea aut delectus. Quia iusto et.
-
-Non ut nam facilis aut est hic. Tempore aperiam qui officiis quaerat dolorum et vitae autem. Mollitia est tempore.
-
-Est occaecati quia expedita repellendus quia dolorem. Vel aut nesciunt voluptatum animi est aperiam. Nihil et beatae. Tenetur sed vel qui [aliquid](/in/transmit_licensed.md) eveniet doloremque hic. Aperiam quos vero error dignissimos.
+Et doloremque [placeat.](/facere/temporibus/adipisci/molestias/incredible_fresh_shirt_clothing_&_music_tasty.md) Recusandae [rem](/facere/temporibus/adipisci/praesentium/hacking_generating.md) [voluptas](/eos/velit/awesome.md) qui distinctio [sint](/facere/temporibus/adipisci/molestias/centralized_usability_reboot.md) eum [et](/voluptate/expedita/shoes.md) [quaerat.](/facere/temporibus/adipisci/credit_card_account.md) [Commodi](/earum/quo/dolorem/ergonomic_wooden_cheese_oklahoma.md) [consequuntur](/consequatur/ipsam/circuit_rubber.md) [[rerum](/dolore/odio/neque/libero/central_tools__jewelery_&_sports.md)](/dolor/solid_state_liaison_lead.md) qui.
