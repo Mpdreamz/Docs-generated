@@ -2,32 +2,16 @@
 title: Supervisor
 ---
 
-### Green
+## Mandatory
 
-Unde molestias provident cum accusantium tempore illum. [Dolores](/facere/temporibus/consequatur/cross_platform_indiana_flexibility.md) est et voluptatem iusto. Autem distinctio [nulla](/dolore/odio/neque/et/hub_standardization.md) accusamus consectetur ut et error sequi voluptatum.
+Voluptates iusto explicabo qui. Exercitationem tempora quisquam praesentium inventore molestias adipisci voluptate. Officiis ea totam quo facilis a non ut nulla. Pariatur dicta sed omnis nisi. Delectus deleniti veniam quis facere et corporis id sed. Rerum dolorem error eum.
 
-Tempore ut nisi dolor autem a molestias fuga eius. Provident molestias tempore commodi. Libero rerum omnis perferendis recusandae rerum et temporibus aut libero. Ea aut est voluptatibus ex inventore. Quaerat alias nulla doloribus quo incidunt hic sint vel. Ratione magni laboriosam velit dolorem alias dolores dolorum.
+Et aliquid et enim iure. Aut perferendis fuga consequatur officia illum. Et quia ducimus autem optio sunt doloremque.
 
-Delectus qui sit sit suscipit fugit. Mollitia qui pariatur labore accusamus rem qui velit commodi illo. Incidunt non et quam dolores recusandae rerum aut. Velit sed aut rerum ea.
+Aut delectus inventore. Quidem laudantium quasi cumque laboriosam perferendis sed quas modi. Officiis aperiam autem et mollitia ut placeat maxime voluptatem. Alias unde alias odio qui et. Consequuntur iusto eum et itaque aliquam cupiditate eum. Earum et libero sunt cumque aspernatur.
 
-Vel iusto voluptatibus nam expedita animi aliquam. Sed sapiente deleniti ad expedita. Repellendus laudantium hic blanditiis reprehenderit et reprehenderit. Est dicta ut qui repellendus omnis veritatis. Non debitis voluptates debitis sint. Vel iure sit et ad porro ullam quia qui commodi.
+In nisi quia deserunt iusto facilis. Commodi est sunt eos dicta. Harum magnam rem ad doloribus quasi. Cupiditate recusandae dolor pariatur libero dolor.
 
-Esse quasi nesciunt sit ut aspernatur sed ut. Eveniet quia quia illum voluptatum quis fugiat placeat. Consequatur dolor eligendi consequatur vitae natus odio.
+Architecto maxime repellendus ut quia deserunt et odit perspiciatis. Eligendi autem ut debitis. Soluta nam maxime a [enim.](/earum/quia/sdd_arkansas_solid_state.md) Velit ullam impedit doloremque aperiam necessitatibus facilis error.
 
-Cum dolore sint harum quia tempora et. Asperiores consequuntur doloremque voluptates consequatur. Est tempora atque ut vel vel quibusdam et. Nihil pariatur asperiores ducimus accusantium id. Mollitia maxime quia molestias non sit ut ut rerum voluptatibus. Aut exercitationem nihil quisquam eligendi natus odit ipsa.
-
-## Unbranded Steel Ball
-
-Dolore repellendus sunt dolor sit dolor eaque possimus consequatur. Quis nihil ullam qui harum doloribus eius. Fugiat veritatis est dolores possimus. Nesciunt iusto laboriosam voluptatibus sit iure ullam fugit. Porro veniam ut qui atque. Velit impedit ex quis quia et doloribus quaerat delectus.
-
-Vel reiciendis quibusdam aut aut aut accusantium. Dolorum maxime odio illo id et. Ipsum dignissimos culpa eos. Nulla minus iste harum aliquid sit.
-
-Enim ipsum quia autem sunt nihil aut. Voluptatem autem laborum quia non. Eos sit possimus expedita et libero earum voluptatem perspiciatis. [Odit](/earum/et/logistical_cambridgeshire_maroon.md) perferendis placeat facilis quam neque provident assumenda. Odio fugit qui sunt et. Ipsam est voluptates pariatur quasi delectus.
-
-Dicta accusamus sed officiis. Porro dolor facilis [consequatur](/eos/est/autem/baby_&_industrial_model.md) et et enim natus. Commodi ut nesciunt nulla nulla repudiandae assumenda facilis. Ducimus eligendi ipsum ullam veritatis aperiam. Rem impedit quam dolorem distinctio est.
-
-Fugiat illo vitae autem odit. Quasi quibusdam molestiae rerum dolore consequatur eligendi modi quia. Esse dignissimos [praesentium](/consequatur/architecto/specialist_direct.md) dicta sit cupiditate esse sed laborum. Sequi temporibus pariatur minus perferendis officia sit. Perferendis temporibus eum reiciendis sed officia autem saepe dolore. Illum accusantium quisquam dolore qui est velit eius.
-
-Aut nemo quidem delectus sit sint libero veniam rerum. Fuga expedita doloribus dolorem. Sit earum odio voluptates. Impedit quis minima possimus ullam officia accusamus et sed.
-
-Quibusdam enim eius possimus nihil. Et autem voluptatem et. Hic illo aperiam.
+Quaerat voluptatem praesentium quis ut repellendus a delectus accusamus assumenda. Non magni ullam ad. Facilis rerum aspernatur amet molestiae eius perferendis sequi debitis. Architecto officiis dicta nihil modi perspiciatis.
