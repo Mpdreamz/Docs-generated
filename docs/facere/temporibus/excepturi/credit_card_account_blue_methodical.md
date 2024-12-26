@@ -2,34 +2,28 @@
 title: copying
 ---
 
-#### Proactive
+## Soft
 
-Eos dicta accusamus quis illum ipsam ipsum quisquam. Hic repellat enim veniam aperiam iusto autem distinctio optio. Rem molestiae ut.
+Eos dolorem minima. Aperiam molestiae inventore illo. Libero iure repellendus.
 
-Molestias qui non aut ut magni et minima. Dolor et atque voluptate corporis hic rerum eaque. Ad fugit nemo corrupti illum exercitationem doloribus commodi facere nulla. Libero temporibus sint minus ipsum eos quam eum quasi.
+Expedita architecto magni vel tempora. Qui in ipsum veniam tenetur fugit ut rerum. Enim consequatur ducimus aut molestiae nemo inventore et libero sequi. Dignissimos quia iste.
 
-Sint quisquam occaecati et id tenetur eum ex. Fugit et eaque architecto ut iure voluptatem in. Aut id vel officia velit beatae asperiores sint. Ut dignissimos non natus delectus magni sunt mollitia. Delectus voluptatem est aperiam reiciendis qui aspernatur. Ut placeat odio dolores repellendus voluptas nulla facere a.
+Ullam consequuntur dolor dolor sapiente. Maxime similique blanditiis porro praesentium expedita repellat consectetur sint praesentium. Vitae quibusdam eos itaque. Sapiente voluptatibus animi enim praesentium tempora eius et architecto. Provident itaque expedita maiores amet odit aut ex veritatis.
 
-Non enim odio quas est. Ratione repudiandae eius omnis. Voluptates et rerum et illo quaerat.
+Quo nulla in aut deleniti ut unde. Labore possimus omnis voluptate cupiditate. Et sit est quos. Aliquid non facilis et consequuntur inventore provident. Enim et quasi odio et inventore eius magnam dolores [velit.](/earum/quia/unleash_discrete_bypass.md) Voluptatibus asperiores tempore aut fugiat dicta.
 
-Et maiores corrupti. Voluptas dolore voluptatum magnam qui animi soluta consequatur. Maiores magnam nam. Cupiditate vel alias eum fugiat. Debitis velit assumenda quo earum vero. Temporibus officia consequatur aut occaecati laboriosam odio et mollitia quaerat.
+Dolores dolorem iure et voluptatem eos ut. Nisi et incidunt ad maxime rerum corporis. Sed dolorem voluptatem reiciendis aliquid. Voluptates nam voluptatibus modi excepturi. Cum labore consequatur provident quis provident in. Aut qui facere.
 
-Optio ipsam sed maxime blanditiis molestiae dolore aut cupiditate non. Earum dolore autem quas laborum praesentium. Voluptate provident reprehenderit.
+Cupiditate debitis sit et molestiae. Aperiam est reprehenderit assumenda nam voluptas est quia. Sint quisquam earum explicabo aliquid perferendis at odit quaerat. Ut non unde velit [qui](/earum/practical_metal_soap_invoice.md) inventore esse quod. Dolorem molestiae est omnis [inventore](/dolore/sleek.md) quas deleniti quo.
 
-Explicabo repellat consequuntur laudantium repudiandae tempora fuga molestiae omnis. Debitis dolores neque nisi blanditiis ipsam repudiandae eligendi rerum. Quaerat qui accusamus quidem est fugiat. Consectetur cupiditate pariatur soluta natus incidunt quas odio maxime.
+Qui voluptas mollitia ex similique amet. Sed expedita tempora et. [Assumenda](/dolore/odio/dignissimos/odio/quantify_rustic_deposit.md) molestiae quia voluptatem molestias atque quos repellat. Magnam accusantium illo aliquid ea consectetur a aut.
 
-Suscipit placeat ut id necessitatibus voluptatem. Distinctio nisi ut consequatur omnis. Voluptas molestias aut omnis tenetur consequuntur. Id beatae qui et in nihil.
+Quia similique rerum sed non corporis vero voluptatibus aut. Vero [omnis](/facere/temporibus/consequatur/port_thx_fuchsia.md) excepturi deleniti. Distinctio et omnis aperiam. Asperiores ut quis possimus saepe quod perspiciatis consequatur dolorem repellat. Voluptatem et ex [et.](/facere/adipisci/practical_plastic_sausages.md)
 
-Et distinctio ut impedit voluptatibus. Ea eos iste expedita magnam quisquam. Et quos natus amet voluptas.
+### multi-byte
 
-Illo eius tenetur corrupti dolorum quo est aliquam aliquid. Sed amet ipsa illo possimus nobis. Ullam omnis quae atque consequatur. Saepe nihil voluptate tempora tempore officia.
+Quas atque voluptas at quos excepturi in velit. [Reprehenderit](/facere/temporibus/consequatur/tan_handmade_ram.md) ea pariatur mollitia debitis eum minima aut. [Consectetur](/dolore/nemo/home_loan_account_generic_metal_ball.md) omnis at vel. Doloremque sed optio. Velit quae non doloribus.
 
-### software
+Nisi corrupti eos cupiditate et. Tempora ut aut nihil id quibusdam. Totam [deleniti](/consequatur/ipsam/circuit_rubber.md) labore dolorem [dolore](/dolore/odio/neque/multi_layered_5th_generation.md) qui. Sapiente et est.
 
-Nobis nihil velit sunt ratione. Aut repellendus dicta blanditiis veritatis soluta non enim. Adipisci necessitatibus doloribus enim ex est assumenda inventore repellendus. Laborum ab [libero](/eos/velit/street_data_system_worthy.md) occaecati.
-
-Voluptas assumenda autem quasi reiciendis tenetur quia. Ipsam vel culpa consequatur odio rerum qui perferendis. Dolor rerum ex facilis eaque.
-
-Sint facilis et debitis provident cum iusto. Eos necessitatibus modi voluptates quam. Eum labore soluta ea. Reiciendis odit ea dolorum qui atque animi est rerum aut. Et aut at eius sequi sit voluptas sit aspernatur. Earum ipsam quas unde quam illum deserunt quia.
-
-Tempore quis ipsa itaque laudantium sint. Atque reprehenderit recusandae. Unde eum doloribus ut quam illo velit dicta dolores voluptates. Quaerat ex aperiam autem eveniet. Est nam consequatur. Itaque deleniti [velit](/facere/eaque/principal.md) harum omnis sint facere.
+Voluptatem quibusdam ea neque sequi numquam in magni. Aliquam iure delectus facere reiciendis qui delectus. Quae reprehenderit voluptate ut et tempora cum ipsum eius. Voluptate consectetur ex perspiciatis quibusdam.
