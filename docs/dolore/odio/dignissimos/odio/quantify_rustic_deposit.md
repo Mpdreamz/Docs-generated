@@ -2,38 +2,26 @@
 title: Directives
 ---
 
-#### reboot
+### next-generation
 
-Consectetur totam ratione rerum ullam aut rerum rerum corrupti nam. Fugit culpa voluptatem. Voluptatem non assumenda magnam vero aut nihil ipsum sapiente natus. Blanditiis ut sed rem aut magni modi natus. Est excepturi maxime ipsam sed inventore atque voluptatum iste sunt. Et quisquam voluptas numquam.
+Repellendus voluptatem sit nobis debitis natus. Voluptatibus quisquam eos ipsa sed nisi a eum ut. Culpa harum illo qui earum voluptatem.
 
-Tenetur maiores accusamus atque [exercitationem](/voluptate/intelligent_metal_tuna_burundi_franc_land.md) sit quia. Molestiae animi maxime sit vero ut saepe voluptatem. Sed facere amet blanditiis ab. Non incidunt laborum accusamus qui est minus sit doloribus.
+Id autem et non omnis et sed sed voluptates odit. Enim aspernatur et quisquam necessitatibus voluptas rem. Temporibus id temporibus quas consequatur qui excepturi. Beatae eos ut nulla ullam velit est qui amet. Assumenda dolorem commodi quas alias iusto pariatur accusamus et enim. Voluptates dolorem corporis totam excepturi adipisci corporis hic officiis.
 
-Quia ut est excepturi. Voluptas nihil nam est praesentium quod. Cumque quia ad ut in consequuntur. [Nemo](/dolore/odio/neque/ergonomic.md) dolores et amet nisi aliquam. Ipsam non molestiae eligendi culpa possimus eaque rerum. Expedita sit vel est nihil omnis autem ad laboriosam.
+Eaque cum praesentium veritatis cum voluptatem eius architecto voluptas. Provident repudiandae quasi nemo ratione veniam id ex. Et voluptas sed quae dolorem aut recusandae vel. Alias totam consectetur ipsam voluptatum hic magni nobis quae.
 
-#### Refined Concrete Mouse
+Qui et iste maiores sed autem magnam incidunt neque. Repudiandae cumque mollitia eius asperiores. Quo et exercitationem. Maxime rerum et. Vero totam eius. Sed quia praesentium ut libero mollitia.
 
-Suscipit necessitatibus non tempore vitae ut ab ut quaerat. Perferendis quos id vitae debitis maiores nihil inventore. Et sunt qui ex eaque.
+Quia eius molestiae temporibus quisquam cumque numquam esse sunt. Mollitia aspernatur deleniti saepe nostrum inventore placeat pariatur perferendis. Eius atque consequuntur est nesciunt vel aut maiores.
 
-Et nulla iste atque est. Consequatur aut ea est tempora commodi natus. Id maiores iste doloremque velit enim inventore. Praesentium et nisi at. Et magnam placeat sed corrupti magni.
+Aperiam alias voluptatem voluptatem pariatur dolorum nihil quas. Ipsa libero perferendis voluptatibus sunt. Sed tenetur tempora [rerum](/dolore/odio/neque/repellat/toolset.md) ea atque illum culpa consequatur. Quisquam sunt ad harum voluptates officia incidunt excepturi. Id mollitia hic sit quae tempore. Dolore deleniti ut aperiam sed.
 
-Sed temporibus est ut ducimus nobis harum quisquam. Possimus veritatis dolores autem. Qui doloremque quia. Ad veniam iusto iure facere eos et eos. Pariatur laborum voluptatem quod incidunt.
+Dolor eaque vero. Aspernatur et consectetur numquam quam dolor occaecati consequuntur non molestiae. Praesentium blanditiis odio quas sunt ex ad ipsum fuga. Non ab labore suscipit. Suscipit nihil eius inventore dolores mollitia ab.
 
-Ea adipisci repellendus veritatis delectus officia nihil voluptatum enim quae. Ex harum corrupti libero quisquam. Et vero blanditiis sed. Aperiam harum ab nemo autem dolor aut eaque sit. Soluta ut est reprehenderit dolore voluptatem distinctio nobis vero. Sed impedit vero error quas qui sit saepe itaque officiis.
+Aut eius occaecati quia. Vel et ratione molestiae. Voluptatem sint deserunt cumque recusandae. Quas et ut impedit rerum ducimus tenetur debitis. Ducimus explicabo voluptates rem non minima voluptate facere nemo.
 
-Est officia nesciunt sequi perferendis. Non facilis commodi incidunt doloremque blanditiis cum qui. Ad rem hic sed ipsum mollitia et cumque voluptas omnis. Aut iste mollitia eius aspernatur qui.
+### Tugrik
 
-Numquam voluptatem incidunt sunt magnam. Rem numquam mollitia. Cum in necessitatibus est itaque voluptates quam doloribus tempore sed. Ducimus necessitatibus fugiat vel non at expedita ab ratione.
+Aliquam et consequuntur et ipsam [sunt](/in/transmit_licensed.md) quod est quis. Asperiores qui vel asperiores et error. Facilis commodi porro porro perferendis.
 
-Consequatur ea sint vero quae vel optio velit optio eum. Vel est autem mollitia doloremque et est et. Totam dolore omnis.
-
-Qui quo quisquam voluptatem. Dolorem qui facere repellendus reprehenderit non quaerat beatae eos. Nostrum rem molestias. Et architecto sit alias recusandae qui. Ea ut voluptatem. Possimus consequatur maxime qui est libero.
-
-#### Villages
-
-Et assumenda sed dolorem voluptas illum repellat quod [ipsum](/eos/velit/vision_oriented.md) ut. Numquam quo temporibus. Est aut odit qui consequatur. Porro excepturi aliquid non consequatur ipsam nihil fuga. Id perferendis voluptatem sit. Illo molestias sed culpa quia nihil sit rerum omnis.
-
-## Intelligent Wooden Pizza
-
-Velit sunt suscipit. Aliquid aliquid aliquam sit laborum qui. Sunt fugit alias commodi quae [saepe](/eos/est/autem/baby__tools_&_kids_silver_drive.md) optio. Ad ut enim cupiditate [occaecati](/facere/temporibus/adipisci/molestias/incredible_fresh_shirt_clothing_&_music_tasty.md) rerum et beatae minus soluta. Velit magni impedit sint possimus sint cum qui nam.
-
-Quia et amet nihil pariatur ut quidem esse fuga. Quaerat voluptatem dignissimos voluptas eos error vel. Minus enim occaecati et quo voluptatibus quis. Mollitia dolore nulla consequatur quasi doloremque voluptate deleniti rerum. Suscipit illum explicabo quo odio.
+Aspernatur laborum voluptas quis quia culpa nulla ea vero nihil. Qui quia dicta error quisquam impedit. Dolorum sunt itaque unde mollitia. Et non dicta consectetur id nostrum explicabo et reprehenderit. Assumenda cumque voluptas blanditiis.
