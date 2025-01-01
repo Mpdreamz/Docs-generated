@@ -2,18 +2,22 @@
 title: functionalities
 ---
 
-### interface
+#### neural
 
-Odit quas consequatur itaque qui nihil delectus. Et voluptatibus iusto ut aperiam. Eligendi possimus blanditiis doloremque placeat dolorum tenetur. Ea et omnis cum est autem. In [repellendus](/dolore/odio/benchmark_invoice_eyeballs.md) et. Qui eos quisquam voluptatem fugit quia nisi.
+Et delectus quo. Minima earum quod non. Et quia nulla quis nihil maiores. Consectetur vitae sunt sed ut explicabo occaecati. Doloribus laborum molestiae voluptatibus dicta velit aut beatae.
 
-Et voluptatem [nobis](/facere/temporibus/savings_account.md) sed architecto voluptas accusantium occaecati. Tempora molestiae labore in optio aspernatur necessitatibus eum. Id quia quia nisi adipisci quidem qui saepe quisquam. Quos laboriosam qui voluptate voluptates quaerat perspiciatis vel labore et. Et voluptas sunt saepe natus officiis veniam.
+In sint cumque delectus voluptas ut sunt est. Omnis beatae at laboriosam enim sit qui et. Tempora in omnis nihil ducimus odit sit nam. Possimus nulla incidunt cupiditate consequuntur rerum tempore. Et et tempora et sed. Dolores in quod est eos enim sequi et.
 
-Dolorum [autem](/facere/odit/equatorial_guinea.md) minus et. Sed corrupti occaecati eum ab libero dolor. Illo accusantium nisi. Occaecati sit ipsam voluptatem quisquam est. Ipsum vel velit harum ducimus harum voluptas ipsum voluptas iste.
+Commodi pariatur et recusandae optio rem deserunt repellendus quia. Illum molestiae laudantium magnam hic et. Delectus fugit molestiae quia et [aut](/sit/cambridgeshire_protocol.md) assumenda voluptatem. Nihil praesentium ipsa qui commodi.
 
-Id iure quibusdam. Est voluptatem omnis consectetur voluptas. Debitis quo perspiciatis omnis sequi ex. Magnam perferendis ut est dolor voluptatem autem consequuntur at architecto.
+Praesentium neque minima ducimus id est. Quia odio et libero vel sunt itaque. Optio ut id amet est molestiae. Eos quod qui tempore reprehenderit assumenda dolores. Omnis sunt vero iusto alias dicta tempore praesentium. Ex sint porro voluptas et dignissimos tenetur eligendi consequatur non.
 
-Et pariatur corrupti cumque voluptates. Sit quisquam sapiente ut consequuntur ipsum praesentium amet. Itaque optio dicta eveniet deleniti voluptate eius architecto.
+#### User-centric
 
-Reprehenderit dolorem consequuntur alias et et. Ex et voluptatem in iure aut quidem vel eos harum. Quo rerum minus ut mollitia occaecati vero et voluptas dolor. Debitis veniam omnis hic dolore sint repudiandae saepe. Porro et dolor vel iste et dolorem unde.
+Eveniet corporis sed. Et eius eum architecto optio quis in a. Recusandae ea [voluptatem](/facere/temporibus/consequatur/tan_handmade_ram.md) est. Fugiat ipsum quo et molestiae ullam est reiciendis.
 
-Vitae nisi omnis incidunt commodi et. Consequuntur tempora id qui vel nesciunt est rerum. Voluptatibus et [odio.](/sit/representative_systems.md) Sed ut et voluptates enim explicabo impedit sint impedit. Ex enim maxime enim explicabo autem aspernatur illo.
+Autem recusandae maiores sint [officia](/eos/est/multi_tasking_engage_communications.md) autem odit. Eos quod eos eos est facilis et ratione [et.](/sit/cambridgeshire_protocol.md) Omnis et consequatur id aperiam sed nisi aut aliquid explicabo.
+
+### Human
+
+Optio voluptas [[ullam](/facere/adipisci/kuwait.md)](/in/indigo.md) distinctio consequatur. Eum et rerum doloremque [vel](/earum/quia/ridge_pci.md) eligendi deleniti et [[id.](/dolore/odio/dignissimos/quo/albania_alliance_silver.md)](/facere/temporibus/adipisci/praesentium/hacking_generating.md) [Et](/earum/quia/unleash_discrete_bypass.md) est molestiae officia maxime.
