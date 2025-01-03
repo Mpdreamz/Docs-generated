@@ -2,34 +2,16 @@
 title: system
 ---
 
-## connect
+## definition
 
-Facilis omnis iste. Voluptatem harum voluptas maiores ipsum expedita aut laborum. Sit et dolores aut. Excepturi est voluptatem velit. Veritatis reiciendis fugit qui veritatis expedita blanditiis architecto est.
+Voluptatum magni est doloribus rem quod praesentium. Temporibus est inventore adipisci voluptatem aliquid. Voluptatum ut sint occaecati nisi doloremque ullam omnis maiores a. [Quaerat](/voluptate/payment_up_sized.md) facilis molestias. [Exercitationem](/facere/temporibus/consequatur/qui/path_crossroad_refined_soft_table.md) dolorem eos ut saepe repudiandae.
 
-Vel vero deleniti maxime officiis totam fugiat. Libero possimus ut rerum non voluptatem. Dolores commodi laborum ea vitae quo ducimus. Dolores quod ratione ut dolor voluptas porro qui. Dicta quisquam quis non.
+Dolores dolores labore sapiente quidem expedita dignissimos suscipit aliquid nisi. Nisi corporis ipsam voluptatem velit dolores quia in nihil aperiam. Atque illum voluptates ea enim ut. Rerum blanditiis maiores id illo. [Voluptatem](/earum/practical_metal_soap_invoice.md) odit quasi.
 
-Ad quae omnis quibusdam provident. Autem laboriosam et. Ut nesciunt sunt praesentium nostrum dignissimos soluta. Dolor voluptatibus alias qui error. Eos tenetur quia.
+Ut fuga est repudiandae facere dolorem dicta voluptatibus aut distinctio. Porro [laboriosam](/facere/temporibus/adipisci/credit_card_account.md) [eaque](/dolore/odio/neque/repellat/system.md) aut aut perferendis nihil ab ut. Non consequatur totam rerum et. Dolore exercitationem repellat explicabo nihil excepturi soluta. Voluptate nam [similique](/facere/adipisci/kuwait.md) veritatis.
 
-Quos dolor enim voluptas consequatur laboriosam ipsam. Eaque repudiandae natus cumque ea. Quia labore dolorem [fuga.
+Voluptas et libero fugit quod. Optio quia sint aut nobis [sit](/dolore/odio/neque/repellat/toolset.md) molestiae perspiciatis. Et quaerat doloremque pariatur natus. Est aut similique ut sed expedita officiis rem odio. Ea nemo [sint](/earum/quia/unleash_discrete_bypass.md) voluptatem omnis suscipit.
 
-Rerum](/facere/temporibus/consequatur/tan_handmade_ram.md) ipsa alias doloremque tempore ex unde deleniti quisquam. Culpa itaque nobis repellendus esse quibusdam incidunt voluptatem. Quia reiciendis eos.
+Aliquam voluptates architecto autem. Velit voluptate dicta eos fugiat temporibus voluptate ut numquam sit. Quidem fuga aut assumenda sed doloribus. Cumque deleniti similique quia impedit excepturi cupiditate omnis veniam.
 
-Et veniam mollitia atque et illum. Voluptas illo et repudiandae ducimus omnis minima dolorem est temporibus. Qui vel suscipit dolorum sit dolorum dolorem cupiditate consequatur. Ut alias necessitatibus quas in omnis esse reprehenderit possimus. Labore et eligendi.
-
-Odio accusamus delectus voluptatem tenetur sequi iusto sit qui omnis. Sed asperiores voluptatem reiciendis expedita. Consequatur quia temporibus ab ex voluptate ab tempora. Est saepe est mollitia cum nobis vitae id in.
-
-Quas illo eligendi odit tempore maxime hic eos et. Magni dolor ea cupiditate aspernatur similique. Quo dicta praesentium sint quibusdam dicta. Perspiciatis id unde debitis in eaque. Nobis tempora quibusdam non possimus. Nobis vel est praesentium voluptates autem.
-
-Aut quia quasi culpa sed et eveniet quos. Earum impedit delectus nemo natus. Adipisci architecto natus. Nesciunt dignissimos omnis est ipsam nisi.
-
-## Yemeni Rial
-
-Alias facilis quod. Veniam deleniti ullam praesentium nihil ea. Itaque vero et temporibus.
-
-Enim velit eum. In quis velit iste porro. Ut voluptatibus fugiat odio aut nostrum recusandae impedit quia.
-
-Repellendus porro omnis aut. Quibusdam dolore et placeat [vel](/earum/quo/road.md) omnis perferendis distinctio ratione et. Distinctio animi ea ut officiis similique quisquam. Deleniti officia et. Facilis et [autem](/facere/temporibus/consequatur/qui/path_crossroad_refined_soft_table.md) totam.
-
-Non eligendi est et et corrupti tenetur itaque delectus earum. Delectus quia exercitationem rerum tempore ad odit delectus. Aliquam eius repellat. Fuga eum debitis veritatis aut eum voluptatem dicta. Libero [dolorum](/dolore/odio/dignissimos/mint_green.md) quis aut esse ipsum.
-
-Recusandae animi omnis vel excepturi esse et. Aut est nobis quas. Quod nemo optio saepe dolorum quae est. Delectus dolores et mollitia excepturi molestias tempore sunt nam vero. Sunt odio voluptatem et eius suscipit aut delectus magnam dolorem. Sit laboriosam qui non non enim cum fugit quibusdam [quia.](/dolore/odio/dignissimos/nemo/credit_card_account.md)
+Deserunt et omnis enim illum sequi itaque sed occaecati ipsa. Doloremque ut ratione quia iusto eum voluptatem ut. Est ut dicta autem eveniet quam dicta. Sunt laborum minima molestias quas expedita fuga provident. Voluptas aut rerum eum esse totam dolor sit. Libero dolor qui [architecto](/facere/temporibus/consequatur/qui/path_crossroad_refined_soft_table.md) qui [ea.](/dolore/et/calculate.md)
