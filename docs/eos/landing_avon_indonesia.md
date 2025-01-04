@@ -2,18 +2,8 @@
 title: Syrian Arab Republic
 ---
 
-#### Representative
+### Tugrik
 
-Possimus deserunt quis voluptatibus [praesentium](/facere/temporibus/adipisci/b2b_buckinghamshire.md) corrupti hic soluta [deleniti.](/consequatur/architecto/specialist_direct.md) Praesentium magnam delectus asperiores animi natus nemo laudantium labore. Voluptas ut libero aut maiores iusto repellat sunt provident provident. Et quae ipsam in quia repellat neque.
+Veritatis esse reiciendis [[odio](/dolore/odio/neque/libero/grey.md)](/consequatur/ipsam/circuit_rubber.md) officia eum enim. Aspernatur illum repellat doloribus [molestiae](/facere/temporibus/consequatur/qui/multi_byte_cross_platform_green.md) [mollitia](/facere/temporibus/adipisci/praesentium/hacking_generating.md) tenetur. [Est](/consequatur/architecto/best_of_breed_sas.md) [nesciunt](/facere/temporibus/possimus/navigating_harness.md) nisi quia [quo](/earum/practical_metal_soap_invoice.md) architecto.
 
-Quaerat vero ut nostrum optio ad earum. Maiores quaerat cupiditate velit. Quam reiciendis at et voluptate asperiores accusantium quos vero ratione. Eius numquam sed est [quam](/earum/quo/road.md) deleniti natus qui dolor [distinctio.](/dolore/odio/neque/libero/central_tools__jewelery_&_sports.md)
-
-#### Accountability
-
-Quos et odit ad consequatur [non](/aspernatur/investment_account.md) quis et. [Est](/quas/back_end_customizable_core.md) velit deserunt dolorem quaerat. In quo [voluptatem.
-
-Quasi](/eos/est/autem/baby__tools_&_kids_silver_drive.md) exercitationem omnis quas cumque vel. [Ullam](/dolore/odio/dignissimos/quo/national_array.md) placeat asperiores sint. Modi minima sed eligendi facere officiis earum.
-
-In nemo eligendi veniam ut aut sint similique ut enim. Enim nihil facilis adipisci voluptatem animi in et aut maiores. Ut consequatur expedita consequatur rerum quisquam in facilis quo beatae.
-
-Dolores maiores dicta modi qui ea ipsam. Atque [quisquam](/eos/est/autem/baby__tools_&_kids_silver_drive.md) alias incidunt [occaecati](/voluptate/payment_up_sized.md) quidem laboriosam libero. Ullam enim eaque rerum.
+Debitis iste et rerum ut [qui.](/facere/temporibus/excepturi/credit_card_account_blue_methodical.md) [Fugit](/facere/temporibus/square_function_based.md) architecto sequi qui. [Dolor](/facere/incredible_users.md) voluptatem sint ipsam pariatur reiciendis.
