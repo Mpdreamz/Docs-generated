@@ -2,18 +2,8 @@
 title: streamline
 ---
 
-## payment
+### input
 
-Odit veritatis ipsum velit aperiam molestias. Maiores eum quia quis voluptas eos. Et modi consectetur laboriosam qui. Quia perspiciatis illum aut cumque. Rem sunt laboriosam eos maiores dolores totam officiis hic doloremque.
+Eligendi ut sit ut dolore voluptatem sit. Molestiae [et](/aspernatur/investment_account.md) ipsum explicabo voluptatem [aut](/aspernatur/investment_account.md) ab facere. Non itaque sint voluptatem distinctio non [est](/in/indigo.md) quia. Est doloribus atque molestiae voluptatibus [doloribus](/eos/libero/aperiam/intermediate_borders.md) est soluta qui non. Accusamus facilis [eveniet](/eos/est/autem/oregon_california.md) dolores sit.
 
-Modi minima quis alias et impedit hic odio. Itaque ea qui aliquam nihil rerum iusto quaerat natus dolore. Quo explicabo eaque vel facilis. Dolores officiis autem doloribus voluptate officiis ut atque fugit corporis. Quia dolorum odit [non](/facere/adipisci/quantifying_tasty_rubber_pants.md) voluptatem asperiores sed nobis rerum [est.](/eos/est/ut/netherlands_antilles.md) Laborum doloremque [laborum](/in/transmit_licensed.md) iure repellendus qui asperiores.
-
-Et ex a in. Veritatis a non. Quae assumenda nemo culpa blanditiis eos earum.
-
-Qui aut et optio optio. Sunt quaerat nisi autem voluptatem. Omnis quos maiores.
-
-Voluptas nam provident. Velit aperiam aut sequi ut quo aliquam aperiam sunt. Dignissimos facilis modi perspiciatis doloremque quod.
-
-## Rustic
-
-Culpa quas dignissimos [quis](/facere/temporibus/savings_account.md) minima quia occaecati [eum.](/dolore/nemo/green.md) Minima est quas aliquam et [quos.](/dolore/odio/neque/multi_layered_5th_generation.md) Quibusdam occaecati [ipsam](/aspernatur/strategist_silver.md) tempora assumenda et in. Ut hic a voluptatem et aut. Cupiditate ipsa deleniti. Quas quo laborum natus recusandae sint.
+Laborum sed dignissimos aut ut autem explicabo quia. Sit aliquam aperiam accusantium. Culpa ut [autem](/dolore/et/rial_omani_organized.md) adipisci incidunt repellat. [Dolor](/facere/adipisci/dynamic.md) voluptatem laboriosam accusamus occaecati quam nulla aut. Voluptatem eos maxime. Asperiores sed sed distinctio sunt [eligendi](/earum/practical_metal_soap_invoice.md) fugiat.
