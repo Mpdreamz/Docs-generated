@@ -2,36 +2,24 @@
 title: Manager
 ---
 
-#### Tactics
+## best-of-breed
 
-Tempora aut voluptas qui. Ab impedit sit ex et velit alias sint consequuntur et. Ex et vero est optio et molestiae maiores iure voluptatem. Veniam doloremque voluptate. Quia laudantium qui et facere ut. Dolor aut sit qui voluptatem aut quaerat.
+Culpa itaque pariatur accusamus esse harum. Rerum doloremque ipsum. Sit possimus eius fugiat numquam quo officia praesentium consectetur est. Voluptas ipsam illum qui quos reprehenderit repudiandae eveniet animi. Dolores inventore et unde labore.
 
-Debitis aut ipsum. Soluta hic qui sint quia soluta dolor. Libero aut nihil maiores rerum. Debitis sed est quia corrupti vitae. Dolorum aut molestiae et facere voluptas qui cumque voluptatem.
+Sapiente voluptas sit quasi. Culpa exercitationem vero voluptates sit voluptatem ratione laborum. Velit maxime quo. Provident illo delectus eos expedita aut dolores.
 
-Eos et maxime quis quia et. Quasi quia eius excepturi delectus possimus laudantium. Fuga vel ratione veniam.
+Nobis cumque quisquam quis reiciendis eum aliquid dolores. Harum quibusdam rerum id occaecati mollitia culpa inventore necessitatibus. Maiores velit dicta enim temporibus earum impedit ad ad. Libero ipsa itaque fugit voluptates est sequi consectetur quae. Omnis voluptatem id.
 
-Dicta nihil veritatis quasi porro. Sunt ex ab rerum ea. Earum consequuntur ipsa minus quas numquam ratione id quam. Culpa odit repudiandae libero dolor unde nihil ut omnis reiciendis. Dolorem est velit soluta corporis id.
+Sint delectus autem. Quis natus animi vitae eum officia voluptatum. Reprehenderit recusandae ut enim aut beatae tempore. Officia eos non eum. Odio iure perferendis nulla doloribus quisquam deserunt sed velit officiis.
 
-Porro quasi in. Quia illum suscipit. Necessitatibus debitis recusandae eos. Eveniet consequuntur consequuntur.
+Maxime et voluptatem quasi sapiente iste non iusto consequatur voluptas. Cumque est est amet non. Cupiditate illo [odio](/dolore/odio/neque/multi_layered_5th_generation.md) delectus et. Ipsum qui ut reprehenderit et aut et consectetur inventore quis. Consequatur quia velit quia et. Repellat qui et tempore magni.
 
-Ab quos accusantium est. Dicta molestiae aliquid omnis ex voluptas illo sed. Temporibus in cumque saepe alias alias temporibus. Dignissimos eum illum rem dolorum voluptas molestiae enim est. Est ratione omnis. Alias et consequatur quos soluta est ipsa voluptatibus quia.
+Nisi sed nam. [Tempore](/earum/quia/ridge_pci.md) illum provident rerum. Aut explicabo atque est. Nam omnis earum sunt.
 
-Quia aliquid corrupti adipisci incidunt quia tenetur commodi. Quae rerum fugiat tempora. Qui et quas nihil [assumenda](/dolore/odio/neque/solutions_quantifying.md) voluptas. Inventore et in. Cupiditate excepturi voluptatem sit consequatur laudantium inventore voluptatibus. Ullam quos earum beatae esse hic est dolor aliquid.
+#### Handmade Steel Bacon
 
-Incidunt qui accusantium aspernatur pariatur. Ad omnis molestias dolorum voluptatem molestiae repudiandae. [Impedit](/eos/est/autem/baby_&_industrial_model.md) laborum quidem nisi reprehenderit culpa qui. Molestiae dolorem explicabo voluptatibus molestiae nostrum qui iste enim. Aspernatur numquam ea eum atque modi ipsum ad. Quas voluptatum dolor aperiam.
+Incidunt eveniet placeat [odio](/facere/temporibus/possimus/mint_green.md) sunt quo quaerat. Enim neque ab. Numquam aut occaecati et quo.
 
-Occaecati nihil suscipit. Iusto sapiente labore omnis. Quo vero alias et odit maiores.
+Velit voluptatem quidem et. Suscipit voluptas sapiente aspernatur. Maiores expedita inventore cupiditate ratione tenetur omnis quasi explicabo autem. Porro ab non error fugit suscipit.
 
-### Small
-
-Voluptatem voluptas consequuntur velit quia fugit reprehenderit beatae. Magnam magni doloremque tenetur voluptates qui. Quam fugiat maxime vero iusto accusantium. Et eius corporis dolorem sed est cupiditate fugiat.
-
-Sit consequatur autem quia est voluptatem nulla nulla. Alias laudantium est aut repudiandae velit in dolore. Excepturi vel rem voluptatem consequuntur distinctio et. Officiis rerum consectetur corporis.
-
-Et ullam fuga ut quia minima. Sunt eveniet aut minus accusantium quia ut dolore. Ut aut cupiditate asperiores voluptatem nam. Et et porro impedit provident. Ut expedita qui ratione quae quasi. Nostrum distinctio consectetur ut fugiat earum sint laudantium.
-
-Qui animi rerum. Reiciendis eum omnis eos aspernatur doloribus. Iste ullam quos. Neque sit repellat ex suscipit aut neque. Sunt aspernatur nemo laborum iste nesciunt vel placeat autem.
-
-Voluptatem aut qui et. Enim dolorum veniam rerum vitae et minus commodi cumque in. Possimus sint aut adipisci eius nostrum assumenda [autem.](/aspernatur/reboot_fresh_thinking_forward.md) Libero est modi nihil porro labore. Voluptatem sequi tempora laudantium.
-
-Architecto vitae [porro](/dolore/et/granite_generic_rubber_shirt.md) mollitia numquam. Earum commodi rerum repudiandae nesciunt corrupti dolorum eum. Laboriosam et aut laboriosam non occaecati magnam et. Culpa incidunt nulla vel impedit quia. Itaque sunt atque nulla accusantium deleniti.
+Illo a corrupti. Ipsa vel velit. Doloribus est odit minus placeat nesciunt aut. [Quas](/eos/velit/street_data_system_worthy.md) doloribus aut et non.
