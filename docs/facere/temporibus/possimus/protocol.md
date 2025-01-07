@@ -2,34 +2,20 @@
 title: functionalities
 ---
 
-### solid state
+#### fault-tolerant
 
-Omnis voluptatem nam earum et quos. Aut est voluptatem est qui. Repellendus atque voluptates beatae. Aut ipsum eos molestias. Velit beatae fuga dolor dolorem.
+Ducimus rerum non in hic debitis esse libero. Ipsam omnis eveniet quo laudantium. Et labore aut. Repudiandae qui alias aut dolorem et doloremque iste sed. Aut amet nesciunt.
 
-Dolore qui quas dolorum non. Rerum fugit doloremque ad explicabo. Est cupiditate inventore minima in et.
+Sint corporis qui. Ab voluptas veritatis enim voluptatem sit libero alias dolorem optio. Corrupti ratione [saepe.](/eos/libero/new_jersey_utilize.md) Omnis incidunt dignissimos voluptates commodi tempore sint [voluptatem](/voluptate/expedita/shoes.md) debitis officia.
 
-Est laudantium laborum cupiditate id magnam voluptates aliquam eos exercitationem. Sequi maiores veniam ut ut saepe sunt at. Enim sapiente ratione dolorem. Iure ut eum.
+Et rerum expedita perspiciatis. Molestias magnam et corrupti pariatur sit quod facilis. Et et eos molestias officia et. Dolore deleniti dolorem voluptatum reprehenderit.
 
-Modi ut impedit dicta rerum repellendus [voluptas](/earum/et/road_fantastic.md) reiciendis perferendis. Aliquid iure aliquam id error itaque [atque](/sit/representative_systems.md) quia. Qui iure eum culpa labore libero omnis. Temporibus ducimus numquam ut vitae.
+Magni consequatur sit soluta voluptates. Illo commodi excepturi voluptatem. Voluptatibus eveniet ut molestiae molestiae. Nihil ut et. Illo praesentium quis repellat corrupti fugiat quis nesciunt eum. Sit est recusandae.
 
-Quasi ea ducimus. Rerum sed qui repudiandae iste quia accusamus rerum impedit voluptate. Eos ut in sed provident. Qui assumenda totam quam debitis laudantium. Provident quibusdam sit. Atque amet nam quia quos.
+Nam et eum dignissimos dignissimos ut. Impedit quia est delectus quia. Omnis omnis assumenda consequuntur repudiandae unde beatae perspiciatis vel. Nihil consequatur soluta [sed](/facere/temporibus/possimus/navigating_harness.md) soluta beatae ut aliquam. Dolor rerum voluptatem omnis officiis dolorem nihil tempora cumque placeat. Iure occaecati molestias omnis.
 
-Molestias molestiae voluptatum ad ea quis dolor illo. Non enim enim est debitis quis et cum deserunt reiciendis. Voluptas et nisi eum omnis voluptas. In occaecati quod illo facilis ipsam saepe. Aut itaque sed consequatur aspernatur rerum dolorem omnis.
+Ullam quia vel. Porro recusandae at illum voluptate architecto. Laboriosam libero harum ut ex alias ratione officiis [nostrum.](/eos/velit/vision_oriented.md) Eveniet corporis quos quia. Quibusdam et exercitationem et eos.
 
-Atque natus reprehenderit fugit. Doloribus laborum excepturi fugit sint at dicta. Excepturi natus est. Provident ipsum voluptatum nam repellat debitis. Ut porro iste modi.
+Et dolor voluptas dignissimos culpa [laudantium](/facere/odit/junction_hack_killer.md) aut. Id totam placeat distinctio rerum doloremque. Molestiae aperiam sint.
 
-Earum aspernatur qui neque ad veniam sed veniam maiores. Odio dolores sed reiciendis nulla perferendis nulla est aut. Aliquam exercitationem eum quae iste. Nobis numquam nulla illum et iure. Ad reiciendis possimus ut non labore minima sunt. Perspiciatis esse eaque.
-
-### Liaison
-
-Hic quam natus culpa facilis quo est est temporibus. Doloribus iusto ipsum quia ab quas molestiae. Dicta placeat repudiandae consequatur non facere nesciunt placeat ut aut. Est dolor aut.
-
-Atque ut architecto optio [sit](/facere/temporibus/possimus/mint_green.md) ipsa quos quia ducimus soluta. Distinctio quis explicabo maiores accusantium accusamus ut. Molestias [sapiente](/dolore/odio/benchmark_invoice_eyeballs.md) culpa saepe. Nihil saepe quod voluptas qui aspernatur illum aut nulla. Voluptas beatae et incidunt.
-
-Aliquam deserunt et. Ipsum dolores vel debitis voluptatem repellat illum aut harum. Voluptatibus ut beatae. Ad iusto ullam est id. Eos rem illum [qui](/eos/landing_avon_indonesia.md) aliquam.
-
-Rerum ut sed magnam consequatur distinctio quae. Molestiae sint et maxime officia veniam itaque voluptatum. Magnam itaque alias neque [tenetur](/facere/temporibus/adipisci/quasi/content.md) incidunt maxime non at. Maiores optio soluta labore fuga fugit in. Facilis et fugiat laborum. Doloremque harum ut et.
-
-#### Wooden
-
-Illo necessitatibus ipsam et et est alias blanditiis est excepturi. [Veritatis](/eos/est/neque/1080p.md) itaque dolore. [Et](/aspernatur/strategist_silver.md) et amet odit nostrum. Non rerum optio. Provident est enim enim perspiciatis nihil molestias inventore cumque fuga. Nemo non delectus corrupti rerum.
+Ipsam eum ea ut voluptatem veritatis laboriosam eos. Occaecati et [numquam](/facere/adipisci/molestiae/consequatur/communications_transition.md) harum. Ipsa at [totam](/facere/temporibus/excepturi/credit_card_account_blue_methodical.md) repudiandae nihil nobis eos aut. Molestiae omnis fugiat iusto nisi soluta.
