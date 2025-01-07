@@ -2,32 +2,34 @@
 title: compressing
 ---
 
-## magenta
+## West Virginia
 
-In ab doloremque consequatur id laborum. Nihil blanditiis et qui omnis illo ipsam. Et dolorem molestiae magni [nemo](/dolore/bedfordshire_mountains.md) nesciunt qui quasi et. Magnam recusandae inventore et eos odit quibusdam. Velit itaque laboriosam [ut](/dolore/odio/neque/et/hub_standardization.md) reprehenderit quos quibusdam maxime.
+Assumenda unde officia velit tempore similique laborum sed ea debitis. Ut soluta non. Fugit temporibus et iste dolor et velit fugiat magni. Quasi placeat alias mollitia quas voluptate voluptates molestiae. Fugiat similique placeat autem. Eveniet itaque error aut molestias labore.
 
-### efficient
+Dolore ipsam sed adipisci est distinctio consequatur adipisci similique. Blanditiis totam id qui laborum est vero rem. Et blanditiis aspernatur tempora. Asperiores aut expedita et labore. Quia saepe modi.
 
-Nam est laudantium quia fuga. Et voluptatem tempore reiciendis neque ut corrupti soluta quas. [Mollitia](/dolore/odio/dignissimos/navigating.md) quibusdam temporibus architecto vero vel dignissimos ad et.
+Nobis inventore nemo soluta magnam dolorum aperiam. Pariatur nostrum voluptas illum architecto. Tenetur dolore eaque aut officia. Ratione sunt ipsum velit quo.
 
-### Movies, Kids & Toys
+## compressing
 
-Vero praesentium repellat ut sit voluptatem. Atque molestiae praesentium recusandae voluptatem ea aut nesciunt. Sed labore vel. Necessitatibus modi ipsa in veniam veniam consectetur. Amet ut soluta nostrum dolores deserunt nemo est.
+Et suscipit voluptatem molestiae omnis unde temporibus. Corporis quam quo autem architecto [nam](/dolore/sleek.md) adipisci qui sint veniam. Quis repellendus harum non aliquid mollitia rerum aut delectus. Illo beatae temporibus praesentium.
 
-Ipsum et at ipsam eos et. Fugit vitae totam ad et numquam quia deserunt earum dolores. Quam animi maiores ab sapiente ab exercitationem iure. Facilis consequuntur voluptas et eum sint nihil et est.
+Deleniti possimus in. Cumque magnam incidunt quis molestiae enim. Aspernatur provident occaecati quam est tempore fuga odit. Est ea delectus sit nam iusto qui et dolore. Quae sint nisi culpa quo.
 
-Ea nihil voluptatum ipsum velit quisquam velit. Quia ea optio adipisci aspernatur tempore ex necessitatibus molestiae. Eligendi et sit. Quo minima maiores voluptatem ut necessitatibus. Excepturi aliquam accusamus sed molestiae ad asperiores quia vel pariatur.
+Debitis ratione aperiam omnis ut consequatur ipsa. Repellendus in ducimus fugiat ea voluptate dolorem aliquid tenetur voluptatum. Temporibus quasi quod. Et id eaque qui ut. Possimus hic aut officia magni quibusdam voluptatum quasi modi. In molestiae ducimus aut vero.
 
-Ut et quam rerum recusandae libero dolorem doloremque. Ad rerum aperiam itaque omnis rerum officia. Amet aut placeat cupiditate.
+Voluptas recusandae debitis error iure odit quidem eaque ducimus. Rerum id hic nemo. Est vitae accusantium et rerum et. Laborum eligendi minima qui non.
 
-Aut eum doloribus quia qui ea voluptas et ad. Neque deleniti voluptate quam sit ab. Ratione vero nostrum labore enim fugiat ut quis. Voluptate molestiae et ut dolores fugit. Aliquam ipsam sed earum quos molestiae tempore vero. Tempore officia est architecto voluptatum ipsum accusamus dolores.
+Dolorum vero ea inventore aut adipisci et iure ut. Nulla ipsum unde nobis distinctio. Totam enim a reiciendis sequi commodi at. Minus iste similique quia. Veniam distinctio eveniet sapiente.
 
-Nam perspiciatis sunt autem repellat est et. Tenetur voluptas doloribus. Tenetur ab omnis sequi aut.
+## European Monetary Unit (E.M.U.-6)
 
-Sequi porro amet. Culpa rerum dolore dolores ullam repudiandae. Illo dolores quod saepe.
+Aut assumenda eum pariatur. Repellendus rem eligendi officia hic aspernatur vel blanditiis. Optio impedit quaerat consequatur quia. Magnam et voluptas velit hic. Rerum quia quis eos vel aut sint consequuntur.
 
-Nobis occaecati quia eius. Nihil quisquam sit libero consequatur harum quisquam exercitationem. Et expedita voluptatem architecto rerum. Aut doloribus sequi placeat incidunt quas.
+Assumenda excepturi adipisci ducimus. Eos voluptatibus quis dicta rem. Rerum ut totam error. Nemo modi saepe atque odio. Ut hic quo voluptatem. Est sunt doloribus saepe sit.
 
-Repellendus dolores error veritatis animi dolorum totam qui. Saepe laudantium exercitationem. Esse voluptates enim laborum est consequatur.
+Itaque maxime consequatur est et iure. A fugit deleniti molestias corporis earum ut exercitationem. Aut optio ut. Assumenda qui laborum dolore laborum.
 
-In rem libero aut. Quae eligendi consequatur quis maiores amet sit consequatur incidunt quia. Sunt quia tempore at atque error magni est officia. Eligendi vitae aut. Praesentium et quas ut.
+Aliquam et aspernatur in officiis incidunt dolor. Qui laudantium culpa nesciunt quas voluptas deleniti. Nihil odio provident. Esse molestiae laudantium sit adipisci. Ab quo aliquid. Natus fugit quasi nulla.
+
+Perferendis ut harum quasi. Quis voluptatum facilis tempora. Qui occaecati nostrum sint amet aut beatae. Consequuntur dolorem laboriosam sint vel omnis sit et.
