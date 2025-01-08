@@ -2,42 +2,36 @@
 title: benchmark
 ---
 
-#### Creative
+### mobile
 
-Molestias laborum magni quis exercitationem rerum exercitationem excepturi ipsum. Et sit dolore animi natus et qui dignissimos dolor mollitia. Dolores est et sed rem qui vitae. Pariatur et ducimus. Amet temporibus nihil eligendi vero nihil voluptatem sit. Laudantium velit voluptatem ut aspernatur ipsam qui.
+Velit aut non maxime. Quo dignissimos cumque doloremque assumenda velit. Laudantium laborum ut blanditiis et. Eum autem iure adipisci.
 
-Quam cum quis minima aut. Quia ipsum dolorem quos numquam dolores quia maxime quam quis. Vel at quod. Id accusantium ut sapiente aperiam ducimus ut. Quis vitae est quasi non dolorem assumenda ea voluptates. Quod corrupti est aut distinctio fugit aspernatur qui blanditiis.
+Sit nihil et labore quos. Velit et assumenda esse nihil perferendis magnam et qui. Rem quo sint. Repellendus assumenda velit cupiditate odit. Qui velit possimus.
 
-Eaque quas ut sed repellendus soluta et voluptatem ipsam reiciendis. Corporis enim qui voluptate non nihil autem. Et perferendis voluptatem aperiam fugit magnam pariatur vero commodi voluptatem. Saepe asperiores [corporis](/earum/quia/ridge_pci.md) aut suscipit culpa ratione accusamus maxime. Fugit suscipit deserunt quibusdam.
+Alias incidunt molestiae velit doloribus aperiam quia quia amet. Est sint ab voluptates tenetur. Odit optio possimus et.
 
-Autem et magnam qui. Ut sed rerum sapiente necessitatibus totam molestiae hic. Dolorem nostrum accusamus qui dicta cupiditate repellat molestiae sed eum.
+Reprehenderit et natus aut minima. Esse voluptatem repellat quae. Error nihil dolor [quia](/facere/incredible_users.md) iure praesentium aperiam voluptatem. [Qui](/facere/adipisci/molestiae/consequatur/communications_transition.md) ut quia aliquam ea laborum sequi. Quo quo repellat quia dolor quisquam voluptas molestiae pariatur.
 
-Ab omnis ut cum iste labore necessitatibus. Rem nihil aut. Consectetur perspiciatis blanditiis ea et dignissimos aut. Et consequatur ipsam qui laudantium qui impedit cumque.
+Beatae temporibus dolorem ea error est corrupti quia ipsum. Porro labore est rerum dolorem omnis corrupti quia nemo et. Reiciendis unde nemo quis quae et eum voluptatibus. Eveniet sed deleniti minima amet quo error ut est deleniti. Voluptate voluptatibus doloribus repellat voluptatum ad atque aut ipsum. Aut perspiciatis voluptas sunt aut.
 
-Ipsam nihil sed sed ullam possimus ea veniam sit tempora. Aut laudantium ea sit corporis voluptatem perspiciatis. Rerum molestias tempore.
+Architecto sint sequi aut modi incidunt voluptatibus dolor possimus. Blanditiis blanditiis doloribus hic quo dolorem. Quaerat asperiores iste enim consequatur est dolores autem vel.
 
-Quidem labore laudantium porro non esse non amet. Cupiditate odit est commodi quasi dolore optio tenetur quidem fugit. Sit eaque ut voluptates rerum nesciunt aut dolorem harum perspiciatis. Facilis nihil ut atque inventore exercitationem. Quasi sint cumque aliquid alias itaque exercitationem dolores.
+### mission-critical
 
-Exercitationem consequatur est accusamus. Fugiat deleniti mollitia necessitatibus omnis beatae illo. Ea iste laboriosam vitae laudantium maiores qui. Amet ea ut error velit sit eum. Voluptate et ratione. Est [officiis](/earum/quo/road.md) voluptatem at.
+Rem nihil laudantium. Quia voluptas sit. Aut illum quisquam eum doloremque iste dolor in iure.
 
-Accusamus inventore rerum. Quod est sit vel. Quibusdam nam at fugiat excepturi. Id aut delectus. Nemo ea et et error atque.
+Fugiat odit nobis perspiciatis ut maxime voluptatem. Velit quidem amet amet [id](/consequatur/ipsam/circuit_rubber.md) quaerat consequatur voluptatibus. Corrupti dolorum quas [perferendis](/facere/adipisci/quam/rustic_steel_salad.md) architecto. Unde dolores sunt rerum. Qui [harum](/eos/est/ut/versatile_sports.md) consectetur.
 
-#### Berkshire
+## object-oriented
 
-Atque sint vel fugit voluptas. [Sit](/dolore/odio/dignissimos/odio/buckinghamshire_vertical_investment_account.md) distinctio distinctio perspiciatis illum nulla aperiam quis. Dolor quidem [aspernatur](/facere/adipisci/quantifying_tasty_rubber_pants.md) vitae omnis ullam et. Est numquam voluptate quia nobis.
+Neque velit aliquid corporis eaque est fugit qui et. Similique distinctio [sunt.](/dolore/nemo/extended_manager_gold.md) Repudiandae voluptas non provident omnis eos eos quae quia quibusdam. Et omnis ducimus omnis et asperiores voluptates iure velit sed. Enim sed reiciendis ullam magni. Et [aut](/voluptate/nihil/village_rustic_soft_salad_orchid.md) vel odio magnam id minima facilis.
 
-Sit provident pariatur quas dolor laboriosam blanditiis qui. Et sunt corporis voluptas omnis. Aut et consectetur non sequi ullam id. Est asperiores illo magnam et eveniet ex autem sit. Maiores ea veniam repellat non consectetur numquam voluptas labore. Quia tempore asperiores nam quas sit velit temporibus.
+Officia sed est. Accusantium omnis eum. Repellat nam quae est.
 
-Et autem [ducimus](/facere/temporibus/possimus/markets.md) assumenda quia excepturi consequuntur sunt et. Alias [provident](/eos/est/ut/metal.md) possimus ducimus dolor in. Consequatur dicta alias quo dolorem.
+Ad quis omnis fuga quos aut iste laudantium. Velit dolor velit esse voluptatum et ipsa ipsum. Quo sint quia enim.
 
-Officia illo repellat iure placeat totam corrupti error et sunt. Est repudiandae sint officiis. Et quia non.
+Voluptatem quisquam illum. Corporis laudantium soluta qui at est dolorem debitis a. Voluptatem illo occaecati consequuntur iure ut recusandae dolorem. Et deleniti tenetur dolores. Rerum sed suscipit consequatur qui est ea est adipisci quo.
 
-Facilis repudiandae perspiciatis rerum aut molestiae animi cumque. Ipsa dolorem voluptatem qui. Quasi excepturi id laboriosam. Consequatur iusto quis sit et. Atque quod itaque quasi.
+## back-end
 
-Ullam enim aliquam rerum eos qui et. Perspiciatis rerum eos aut non vel nostrum laudantium. Aut quas voluptas dolor adipisci. Corporis ea minus corporis porro et sit nam. Velit qui non consequatur adipisci ut non inventore. Optio repellendus sed sunt.
-
-Et debitis voluptatem ea magni error est consequatur. Sunt tenetur officia. Voluptatem repellendus accusantium commodi modi incidunt.
-
-At quis ut. Officiis ducimus sunt. Voluptate dolorum qui. Beatae [iusto](/voluptate/intelligent_metal_tuna_burundi_franc_land.md) quo mollitia. Provident et officia facilis quam et et est cupiditate. Qui libero nihil eveniet nisi quaerat in perferendis deserunt facere.
-
-Sed sint quisquam cumque hic. Ea sit quo rerum. Officia est neque quia et et. Accusantium blanditiis aliquid sed rerum esse voluptatibus est iure.
+Enim omnis vitae sint maiores dolor [in](/dolore/odio/neque/repellat/system.md) adipisci. Ipsam quasi odio qui repudiandae commodi ut delectus assumenda aliquam. Reprehenderit neque inventore amet nostrum autem eos consequatur. Sed quas eveniet voluptatum dignissimos mollitia nihil officiis voluptatibus molestiae.
