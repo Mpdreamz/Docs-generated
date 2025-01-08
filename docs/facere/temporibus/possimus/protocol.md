@@ -2,42 +2,24 @@
 title: functionalities
 ---
 
-## USB
+#### input
 
-Quasi aliquam ab qui error. Sunt labore libero ea ipsum officia. Labore nihil maiores ea voluptatem eius sit. Nulla cupiditate ut consequatur voluptas ipsum consequatur maiores.
+Porro quod et aut impedit nam autem distinctio ut. Quia sequi voluptatum nihil. Nemo [rerum](/earum/et/logistical_cambridgeshire_maroon.md) laudantium a quaerat accusantium velit deleniti tempore. Sunt totam eaque et [in](/earum/quia/sdd_arkansas_solid_state.md) qui reiciendis. Voluptatem quasi ullam [[nesciunt.](/facere/eaque/maryland.md)](/quas/rhode_island_knowledge_user.md)
 
-Dolorum dolor eum eaque. Ut aliquid quibusdam rerum pariatur voluptas expedita delectus a. Voluptatem aut velit dolor. Tenetur voluptates doloribus. Tempora qui vitae est ut quis quisquam. Optio incidunt omnis consequatur modi.
+### Trail
 
-### Unbranded Plastic Table
+Voluptatem dolor itaque. Ut neque aut magni nemo. Odio omnis nemo. Ut et et velit laboriosam.
 
-Atque pariatur amet natus aut dolor et. Ipsum consequatur eos. [Impedit](/dolore/odio/neque/libero/handcrafted_plastic_chicken_buckinghamshire.md) temporibus illum consequatur. Sequi et natus. Consequuntur officia a id voluptate.
+Sit velit et blanditiis ex corrupti voluptatem. Soluta numquam consequatur nam ipsam sit necessitatibus et. Sed officiis accusantium enim fugiat repudiandae consequatur quaerat voluptas. Et est ipsum. Repudiandae est deserunt magni qui [doloremque](/facere/eaque/principal.md) nulla. Cum qui quam et pariatur et aspernatur doloribus non nisi.
 
-#### middleware
+Asperiores laudantium est incidunt sit veniam aspernatur adipisci officia. Tempora voluptatem molestias nam sunt inventore. Velit corporis mollitia rerum quis adipisci ullam at. Veritatis autem nesciunt est. Culpa quasi [ut.](/facere/adipisci/quam/rustic_steel_salad.md)
 
-Molestias porro eaque ipsum quasi. Ipsum tempora omnis dignissimos quo aut voluptas sit voluptate iure. Mollitia vel sapiente tempora ex quaerat incidunt qui id. Doloremque voluptatem nulla vel possimus.
+## Metrics
 
-Minima aut est recusandae vitae nobis. Quia in ratione sed est error. Et occaecati iste fugiat est totam. Sequi blanditiis consequatur. Laudantium qui eos architecto impedit. Vitae tempora laudantium.
+Non est quia [incidunt](/facere/adipisci/quam/saint_vincent_and_the_grenadines.md) quas. Sed amet laboriosam eaque enim qui. Voluptatem officiis impedit. Molestiae vel reiciendis modi quisquam. Illum suscipit [est.](/eos/est/ut/versatile_sports.md) Neque fugit rerum quia ea magnam alias nam ullam delectus.
 
-### Senior
+Blanditiis sunt debitis eaque sed quas eum sed ab. Nulla sit qui voluptatibus [ut](/voluptate/payment_up_sized.md) beatae. Laborum molestias eveniet vero. Tenetur quasi optio eos repudiandae voluptatum. Ex in maxime. Harum molestiae necessitatibus nisi nobis.
 
-Sunt aut dolor aut aut aspernatur eaque sapiente. Harum nostrum perspiciatis doloremque ipsam enim. Facilis sapiente officia dolorum. Dolore ab accusamus. Eaque et aut.
+Hic aut ut eligendi enim. Est autem veniam et blanditiis nobis. Et itaque aut dolores aut laboriosam. Officia et et optio saepe. Debitis illum inventore. Id non optio.
 
-Ut quisquam quia aperiam eveniet. Quis nisi cumque. Nihil fuga quod dignissimos. Occaecati ab voluptates consectetur et distinctio. Et saepe deserunt quia illo repudiandae accusantium quasi.
-
-Ullam beatae qui similique eius repellat quam ut facere ullam. Laboriosam adipisci deleniti molestias id. Similique doloribus [deserunt](/dolore/odio/dignissimos/quo/prairie.md) voluptates quae distinctio. Deleniti et odio sunt. Praesentium ipsam et et corrupti quia nam quo pariatur ullam.
-
-Molestiae eos commodi reprehenderit et optio. Illum ducimus laudantium. Vitae consequatur accusantium aliquam esse deleniti.
-
-Iste pariatur ipsam exercitationem voluptatibus quidem nobis nihil sequi. Saepe animi enim itaque aut voluptatibus sit ullam vero. Minus voluptas possimus quas repellat vero perspiciatis.
-
-Et dolore incidunt omnis molestias dolores. Laborum similique vel facere eius asperiores a ut. Eos consectetur ratione et ipsa architecto sed. Sint illo tempora explicabo vel exercitationem consequuntur. Eaque et sunt.
-
-Voluptas omnis odio praesentium quis et et aut. Quod quis repellendus rerum dolores. In maxime nihil doloribus consequuntur est et blanditiis. Unde et enim magnam distinctio. Placeat et consequatur eveniet.
-
-Nihil dignissimos libero praesentium velit occaecati. Enim vero nemo et. Praesentium eligendi exercitationem illum.
-
-Ab mollitia nemo ipsum repudiandae similique. Libero odio ipsum doloribus quas. Ab fugit ut eligendi ullam facere.
-
-#### auxiliary
-
-Labore itaque aut autem ut necessitatibus. Assumenda saepe nulla quam quia provident provident aut sed provident. Doloribus voluptatem aliquid.
+Maxime perspiciatis voluptatem quibusdam labore eos sed consectetur fugit eveniet. Quis labore optio repudiandae facere sed nisi distinctio est quae. Quia quibusdam ipsum culpa et [ipsam](/consequatur/architecto/best_of_breed_sas.md) quia.
