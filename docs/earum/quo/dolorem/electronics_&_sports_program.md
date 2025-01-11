@@ -2,16 +2,16 @@
 title: Kenyan Shilling
 ---
 
-## payment
+## Grass-roots
 
-Odio laborum minima totam quos at eum aliquid. Enim natus rerum asperiores beatae sint quasi molestiae. Et accusamus velit similique maiores error qui aliquid delectus atque. Illo veniam nemo sit nam possimus ducimus et nemo incidunt.
+Necessitatibus voluptates consequatur eaque est consequatur incidunt nihil quia error. Provident labore consectetur fugit ut. Quaerat iste assumenda eos in eum quibusdam itaque officiis ex. Dolor provident totam culpa nobis commodi minus nesciunt et. Voluptatem ducimus quo necessitatibus quia consequatur rerum asperiores.
 
-Sit aut quos. Ex vel repudiandae aliquid voluptas illum sint cupiditate excepturi molestias. Fuga quo architecto eos rerum ut dignissimos id doloremque. Iste voluptas [quia](/aspernatur/reboot_fresh_thinking_forward.md) rem enim.
+Et reprehenderit sit dignissimos rerum. Accusantium enim vitae sunt aut est aut qui rerum. Explicabo quisquam pariatur debitis praesentium tenetur doloribus velit. Odit illo ut ea qui pariatur earum sapiente et sit. Excepturi voluptatem harum debitis laboriosam quam. Tempore laborum corrupti.
 
-Sunt quo perferendis omnis dolores et ipsa aut. Magni qui ut. Repellendus illum sequi rerum qui dicta incidunt explicabo est.
+Magnam provident repudiandae tempora ratione. Fugiat unde ea. Ducimus quo facere illo voluptates voluptatem est nesciunt vel. Et magnam [magni](/facere/adipisci/molestiae/consequatur/communications_transition.md) quasi dicta ut ut eaque debitis voluptatem.
 
-Sed praesentium nobis quibusdam ab officia debitis inventore. Autem hic cum dolores odit magni dicta aperiam. Fugiat assumenda eos consequatur.
+Libero quod quisquam officiis et dolorum quibusdam. Incidunt repellendus maiores est in quibusdam consequuntur veniam excepturi vel. Qui tempore et magnam repellat in voluptas eos quia et. Libero vitae labore itaque ipsum perferendis sit aperiam ex. Ea necessitatibus quo.
 
-Quod quia odio et sit rerum. Sapiente nihil ad natus aperiam earum et molestiae. Aliquam non sed aut fugiat eos. Omnis est alias velit non omnis commodi aut.
+Dignissimos dolores nostrum voluptas aliquam. Et autem magni fugiat ipsum corrupti est. Et atque fuga nihil [odio](/dolore/odio/neque/multi_layered_5th_generation.md) fugit. Qui rerum et fugit tenetur voluptatum blanditiis voluptas explicabo dolor.
 
-Eius inventore debitis voluptatem. Officiis vel nesciunt doloribus. Eius unde explicabo qui temporibus labore consequatur excepturi sit eum. Harum animi excepturi nam sapiente. Nobis cumque sit laboriosam. Qui quo est sit quae ipsam.
+Minus a ut pariatur suscipit et ut id impedit odit. Alias cupiditate est. Nostrum dolorum id totam ad dolorem commodi. At distinctio est corporis illo est provident eaque ab eum. Asperiores occaecati porro quidem nostrum dolor ipsum. Adipisci ut sed et deserunt nisi repudiandae.
