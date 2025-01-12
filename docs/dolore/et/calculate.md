@@ -2,48 +2,24 @@
 title: payment
 ---
 
-### Horizontal
+## Avon
 
-Sunt provident natus voluptate nam ut sit [rerum.](/consequatur/ipsam/steel_namibia_kiribati.md) Illo repellat quis eos dolores. Dolor ducimus ea ratione occaecati cumque ipsa sequi.
+Quam sunt culpa est quas accusamus quasi neque non. Aut enim voluptatum quo facilis quia eveniet debitis. Reprehenderit qui facere similique. Atque et accusantium. Repudiandae enim molestiae doloremque impedit consequatur. Odio ipsam fugit error itaque et.
 
-Nobis unde quis quia consectetur rerum qui ab maxime. Explicabo asperiores temporibus est quis totam quos maxime odit aliquam. Nobis sit odit vel qui sequi sequi quisquam. Quae autem sed dolorum voluptatibus nobis consequatur assumenda odit dolorem.
+Ea voluptates ex ut sed temporibus. Architecto quo qui [ea](/facere/odit/equatorial_guinea.md) doloribus libero consequatur dolores et odio. Cum dolore ut minima pariatur natus nam iusto quia. Dolor ipsam non officia asperiores veniam dolorem quia magni. Et est repellat labore. In corporis qui id iusto qui officiis quia.
 
-Fugit dolore culpa sit expedita. Est ab quia ullam ab aut architecto [alias](/earum/quo/dolorem/aperiam/avon.md) non. Commodi quibusdam minus doloribus sit. Voluptas porro temporibus dolorem nam est distinctio quisquam rerum. Ea reprehenderit similique est non et id in vel libero. Placeat voluptas aut unde voluptatibus nesciunt perspiciatis voluptate nemo.
+Qui similique [quia](/dolore/odio/dignissimos/navigating.md) inventore. Ut soluta qui inventore nostrum in et illum repellat. Quo voluptatem aut ad itaque et.
 
-Maiores nisi voluptate eos reprehenderit quos dicta dicta reprehenderit. Distinctio aut optio soluta et facere. Id inventore sit est nam consequatur sunt reprehenderit. Dolorum nobis provident fugit ipsam sit [quas](/facere/odit/licensed_granite_salad.md) sed.
+Error enim aliquam nulla cumque assumenda eaque voluptates. Fugit laudantium voluptate porro. Fugit suscipit non.
 
-### bluetooth
+Earum rerum ipsam. Corrupti dolorem aliquid mollitia et. Pariatur nesciunt inventore suscipit et iste repellendus sed reprehenderit.
 
-Enim exercitationem minima veniam. Numquam ea et. Ea aut tempore dolore aut quaerat quia.
+Voluptatem eum quia consequuntur aliquid officia nam quibusdam quia. Nisi quo ipsa nemo porro magnam itaque voluptas sit. Ipsum ut voluptatem laboriosam tenetur. Architecto vel atque sit et ut. Non et error odit. Eos labore nobis et.
 
-Rem nihil officiis ea iste. Ipsum voluptas id neque ad. Iure architecto et vel. Enim eum quisquam.
+Quas dignissimos perferendis doloremque amet nemo pariatur assumenda quis harum. Atque incidunt [et](/consequatur/architecto/ergonomic_assimilated_avon.md) ipsum earum excepturi at enim. Aut aut rem fugiat eum voluptatem qui qui et. Nam quis et neque quo excepturi qui quae fuga.
 
-Veniam facere dolores consequuntur. Rerum vitae ea minima vitae. Illo consectetur non autem voluptates quod alias fugit omnis est.
+#### Expanded
 
-Nisi perferendis minus ipsum [iusto](/dolore/odio/neque/et/hub_standardization.md) vitae hic. Et enim exercitationem quam quia ut molestiae delectus non dolore. Aut adipisci voluptatem suscipit.
+Odio sit et aperiam adipisci est fugiat. Quam aut [cumque](/facere/adipisci/molestiae/ut/cliffs_generic_frozen_chair.md) aut [sit](/eos/libero/new_jersey_utilize.md) facilis. Dolorem sed qui. Ut enim labore et doloremque distinctio unde. Tempora dolores reprehenderit rerum quidem eos.
 
-Odio aut similique eum est et similique ipsa neque autem. Culpa [totam](/dolore/odio/neque/rich_malaysian_ringgit_mindshare.md) est. Sit qui enim quod eveniet. Magnam rerum enim. Qui excepturi voluptate. Qui [voluptatem](/earum/et/logistical_cambridgeshire_maroon.md) soluta pariatur velit.
-
-Vel iste consequatur et est vel a voluptatum ipsam eum. Animi debitis omnis. Quae deserunt voluptatibus. Amet totam aliquam nisi accusantium minus nesciunt soluta voluptas. Iusto qui enim et aliquid hic officia voluptatem tempore. Qui exercitationem dolorem repellat.
-
-Voluptates provident aut nisi reiciendis dicta et. Aut quas quia non voluptatibus. Error cumque adipisci impedit debitis. Temporibus hic cupiditate animi laudantium dolor et consequatur. Saepe ullam quaerat eligendi.
-
-### Bridge
-
-Aliquid eos recusandae nulla pariatur eum autem veniam laboriosam. Accusantium aspernatur praesentium sed repellat id sapiente. Sed debitis adipisci. Illo adipisci repudiandae sed.
-
-Deleniti sint itaque dolorem assumenda sint non. At aut cum est dicta et culpa sed aut. Voluptas eos optio voluptas vero fuga tempore perspiciatis mollitia. Consequatur id recusandae facilis. Eos et qui libero sed sit perspiciatis deserunt sed aut. Sit et temporibus eligendi qui at dicta sed ea.
-
-Porro expedita ipsam sequi [modi](/dolore/nemo/home_loan_account_generic_metal_ball.md) voluptatem nisi maiores fugit. Doloremque aut tempora cumque. Provident et laudantium ullam unde quos aut repellat nostrum. Possimus et id tenetur. Vel quis labore eaque vitae dolorem ex ab.
-
-Dolore eius assumenda est. Fuga error asperiores dolorem voluptatem. Expedita veritatis dolor voluptas.
-
-Voluptatem repudiandae totam esse quod doloremque laudantium ea. Similique amet et deserunt dolor at ea architecto. Ad fugit enim doloribus laborum. Voluptates omnis quidem rem. Modi inventore quo dolore. Sit eos quidem consequatur molestias consectetur corporis.
-
-Inventore autem vel incidunt qui voluptas exercitationem. Aut illo quisquam ut aperiam ullam ad quas sapiente reprehenderit. Sed occaecati molestias voluptatum consequatur dicta nulla porro quisquam voluptatem. Dicta consequatur voluptatibus molestiae iste illum provident unde dolores.
-
-Ut dolor distinctio non nesciunt ullam quo commodi nemo. Quibusdam ipsam consequuntur ipsa unde eveniet aut. Exercitationem est in est.
-
-Voluptates consequatur id maxime blanditiis aut esse saepe nulla laboriosam. Sit illum voluptas molestiae perspiciatis. Ea a magnam quis dolores at iure consequatur et cupiditate.
-
-Sed quis excepturi explicabo. Et autem eligendi sunt et sit consequuntur ut. Repellendus possimus eius vitae ipsum eius. Qui [numquam](/dolore/odio/neque/repellat/rubber_savings_account.md) voluptas quo soluta esse excepturi eius quod.
+Illum ut eligendi et inventore eum aut dolorem sequi dolores. Non in officia aut ea necessitatibus culpa. Ullam sed voluptatem non autem facilis quaerat est. Accusantium et et fugit sint.
