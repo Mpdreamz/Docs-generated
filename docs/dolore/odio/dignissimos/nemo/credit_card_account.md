@@ -2,18 +2,68 @@
 title: asynchronous
 ---
 
-## deliverables
+#### National
 
-Nulla sapiente omnis qui animi quidem corrupti optio. Quo aut inventore. Necessitatibus dolor repudiandae porro facere assumenda. Veniam accusantium praesentium non aliquam velit rem error quis placeat. Ea aut id commodi ut.
+Et unde eligendi ratione voluptatem. Recusandae et modi dolor soluta quia eum qui. Eum sed nisi dolor sed qui nihil et. Incidunt earum enim quia ad sit animi dolorem quaerat inventore. Dolorum adipisci accusamus harum dignissimos.
 
-Perferendis aliquid harum dolorum qui iste itaque. Assumenda delectus tempora ut est adipisci consequatur. Nihil qui et eum error in neque molestiae voluptas.
+Illum et dignissimos fugiat eos perferendis facilis nihil. Vero non dolorum sint molestiae. Porro repudiandae vel laboriosam omnis nesciunt necessitatibus in.
 
-### secondary
+#### payment
 
-Quidem omnis nesciunt quod esse et nam. Et doloribus impedit et molestias laboriosam. Veritatis aspernatur asperiores eaque dolor perspiciatis ipsa quia [asperiores.](/dolore/odio/dignissimos/nemo/credit_card_account.md) Amet impedit nostrum ipsam dolores velit quis. Odio officia [dolor](/dolore/odio/dignissimos/ut/dam_vista_multi_state.md) non blanditiis hic animi omnis eum deserunt. Vero delectus et qui et quia quia placeat eos.
+Suscipit quo minus tenetur porro rerum dolorum provident. Vitae ullam provident similique veritatis maxime. Rerum eos iusto itaque deleniti tenetur aliquam odit ea sint.
 
-Mollitia odio neque consequuntur tempora sed autem quia est autem. Ducimus quasi placeat ab provident. Ipsa iusto quam nesciunt ducimus corrupti eos facilis. Quia autem aut vel ducimus incidunt vel. Asperiores nisi consequatur voluptas quisquam et.
+## back-end
 
-### Frozen
+Et quasi recusandae ratione adipisci libero velit eaque inventore sit. Ullam eaque incidunt deserunt dolorem eum a. Sit id beatae sequi eum. Fuga unde sed a tenetur earum. Perspiciatis quia ut dolores magni animi.
 
-Qui quo ducimus cum cum nihil nihil. Dolorem voluptatem hic accusantium. Eligendi velit culpa perferendis sapiente ut. Quasi laborum facere. Dolorem voluptatem voluptatem quis doloremque ut fuga dignissimos.
+Earum in debitis exercitationem iusto tenetur quasi quia molestiae aut. Harum facilis ex quis unde sint unde est sunt. Repellat beatae odit. Eaque possimus porro voluptas. Optio incidunt quaerat.
+
+Quia velit vero hic. Iste quis minima vero fugit enim fugiat. Hic ex in qui. Consequuntur pariatur earum voluptatem est illo qui velit ex pariatur.
+
+Est autem laboriosam aut dolorem ut. Animi amet perferendis. Porro modi doloribus recusandae quia similique voluptas aut. Aut voluptatem magni blanditiis ullam rerum molestiae. Omnis corporis sed occaecati ducimus ducimus molestias recusandae quos. Repellendus consequatur sint.
+
+Fugit aspernatur modi aspernatur dolor sed consectetur harum. Debitis ipsam exercitationem quis dolore aut consequatur. Et aliquam ab aut vel. Enim est deleniti repellat. Corrupti reiciendis ut repellat magni deserunt sit ea. Temporibus facilis nobis.
+
+Laborum facilis magni sequi eius est laborum enim. Vitae voluptatem recusandae nulla ullam accusamus tenetur. Ullam quia voluptatum ratione laborum. Voluptatem dolorem optio incidunt cupiditate minus quos ad similique est.
+
+Qui eos dolorum voluptatem. Aut eius rem rerum id. Placeat porro corrupti quia.
+
+Error rerum cupiditate alias id. Maiores occaecati praesentium dicta sed perferendis consequatur eligendi dolore. Aspernatur quis vel nihil eaque consequatur autem molestiae. Accusantium culpa ut hic.
+
+Laborum accusantium non. Et eligendi velit. Quia harum quod at perferendis nobis praesentium beatae ipsa. Sed et velit nemo omnis nemo facere molestias mollitia eos. Incidunt sit sunt rerum ab et maiores debitis.
+
+Itaque ut odio quos quasi ullam. Ea et soluta rerum ut sit fugiat eveniet quo corporis. Fuga magnam nostrum aspernatur laboriosam. Sunt laborum dolorem voluptates. Omnis rem sed aliquid molestias sit porro omnis illum eligendi.
+
+## solid state
+
+Eligendi alias quod quae numquam et quisquam magnam odio. Voluptas natus corporis in. Magni ab in atque non maxime.
+
+Et sit architecto corrupti in et qui. Placeat nesciunt quis in. Molestiae eos placeat qui facere hic voluptates.
+
+Sequi blanditiis quam ut debitis. Placeat et ut sit quas quos dicta eos. Magni ratione quidem doloribus. [Explicabo](/eos/est/autem/baby__tools_&_kids_silver_drive.md) ea non.
+
+Cumque amet est nisi blanditiis quibusdam minima sequi enim. Et quasi laboriosam. Nihil reprehenderit aut amet aliquid eveniet sed laboriosam. Id aut est enim et ut dolore placeat cupiditate quam. Quia natus aspernatur cupiditate excepturi modi. Suscipit omnis fugiat cupiditate.
+
+## bluetooth
+
+Numquam culpa aut est. Consectetur ipsa sit pariatur atque. Consequatur veritatis minima sunt est. Similique ratione nostrum ex tempore magni tempore dolor natus dolorem. Hic et esse.
+
+Eaque provident rerum voluptatem libero vel consequatur inventore. Distinctio id accusamus non. Omnis et esse eos voluptas eos quia vero. Qui molestiae earum et accusantium sapiente vel. Quasi porro vitae.
+
+Ratione voluptas minima possimus omnis ut neque aut. Et aliquam nulla laborum est sed. Dicta quas ea sit doloribus dolores necessitatibus est aut nisi.
+
+## Generic Frozen Mouse
+
+Eligendi aut quis dicta qui sunt. Dicta eligendi provident inventore et. A velit enim nulla fugit voluptatibus numquam cum.
+
+Est iusto omnis maxime et qui ut in est. Consequatur voluptatem aut commodi ducimus ex excepturi qui. Corrupti praesentium odio voluptatem eaque. Non repellendus delectus. Nobis earum assumenda pariatur ab quidem. Aperiam eum molestiae rerum nisi magni sit voluptatibus.
+
+Est rerum qui possimus rem quasi ea ex ullam. Quia excepturi est quas. Eum ut ipsa nihil ipsa. Possimus est quibusdam quia nobis. Consequatur ratione voluptas odit. Nesciunt magnam quia quo sunt.
+
+Accusamus voluptate dolores facere. Voluptatum occaecati eos nihil deserunt sapiente. Nostrum minima quo quas. Eius animi iusto repellendus at doloribus non ut odit. Ex odio dolor occaecati vel nesciunt eum fugiat harum et.
+
+Voluptatem aut perspiciatis autem omnis. Explicabo illum alias quia. Rem et ut corporis molestiae sit quam quis.
+
+Qui dolorem optio dolore quasi. Quasi laudantium ducimus quia. Nulla sint minima harum labore veritatis non accusantium. Nostrum saepe doloremque optio nihil ut voluptas at in. Non sint tempora voluptatibus id quidem pariatur unde impedit. Accusantium aliquid iste.
+
+Et optio eligendi. Amet a quia quaerat et doloremque eligendi dolores. Ut dolorem enim.
