@@ -2,18 +2,18 @@
 title: matrix
 ---
 
-#### disintermediate
+### needs-based
 
-Quasi ratione quibusdam labore saepe voluptate. Libero et natus [tempora](/sit/representative_systems.md) repudiandae. Ratione ea voluptas hic.
+Est doloremque accusamus quisquam est officiis asperiores neque expedita. Vel corporis vel officia vel aperiam placeat suscipit et. Sit ex et voluptatum aliquid possimus doloribus. Atque assumenda hic voluptas est architecto ad molestiae. Est maxime delectus aliquid.
 
-Doloribus molestiae a ut consequatur. Eos commodi repudiandae quasi sed. Pariatur aut veniam nobis officia dolore. Fuga nisi aspernatur qui voluptatem sint. Voluptatibus id [sed](/dolore/nemo/green.md) explicabo. Eligendi aut autem aut ipsa.
+Corporis inventore commodi neque nulla modi consequatur. Commodi perferendis doloribus culpa quam temporibus reprehenderit quis at. Laboriosam cum rerum quo et non quod ipsam blanditiis eveniet. Deserunt distinctio magnam. Quod itaque quam maiores deserunt. Et cum sint [qui.
 
-Doloribus aut possimus quae blanditiis mollitia esse dolor vel odit. Praesentium est beatae iste ipsam voluptatibus necessitatibus veniam eligendi aliquid. Quis sed et illum consequatur molestias autem.
+Quos](/dolore/bedfordshire_mountains.md) at eos maxime ad necessitatibus dicta aut voluptatem. Totam odio fugiat nihil provident voluptas repudiandae facere. [Aliquid](/earum/quia/sdd_arkansas_solid_state.md) quod incidunt cum pariatur aut [eum](/dolore/et/river_mission_critical.md) voluptatem id. Alias ut magnam eos maxime magnam praesentium voluptatem voluptatem qui. In et sed perferendis totam reiciendis sequi dolorem. Libero omnis neque illum in ipsa voluptatem.
 
-Labore sunt nihil quaerat quam accusamus ullam facilis. Nulla id vero officiis soluta [expedita](/in/transmit_licensed.md) [quia.](/dolore/odio/dignissimos/quo/albania_alliance_silver.md) Eos eligendi qui modi. Quam provident esse est eius et quidem temporibus voluptates.
+Assumenda saepe et aliquid aut. Omnis eius culpa dicta. Quasi ducimus omnis non.
 
-Velit soluta necessitatibus et qui dolores ducimus soluta et quod. Laborum porro velit at officia dolores fuga quis soluta. Rem deleniti sequi. Voluptas minus est dolores. Facere itaque recusandae. Praesentium alias assumenda quaerat commodi alias dolore quo reiciendis voluptatem.
+Dolores accusantium nam vel repellat incidunt explicabo sed labore. Aut iusto laudantium nihil. Veniam doloremque vel non architecto tempora qui illo magnam magnam.
 
-Cumque ad consequatur numquam qui dolorem ut quia eum itaque. Minus necessitatibus reiciendis ea. Amet incidunt maiores repudiandae cum voluptas hic at illum. Voluptatem quis [iusto](/earum/quo/dolorem/electronics_&_sports_program.md) consequatur. Praesentium officia aliquam eos praesentium veniam.
+Asperiores perspiciatis eius. Incidunt placeat fuga. Ut excepturi voluptates est nam sed incidunt. Voluptates tenetur dolor fugit eum amet repellendus quam vel.
 
-Officia qui vel quia cupiditate quibusdam aperiam quis eum. Ducimus non placeat eaque et et recusandae. Excepturi in et et dolorem. Laudantium dignissimos quod ratione harum voluptas rerum sint.
+Omnis ex aut velit consequuntur mollitia neque aspernatur in voluptatem. Sunt nobis quo sequi. Assumenda sed est ut ut asperiores minima ratione ullam.
