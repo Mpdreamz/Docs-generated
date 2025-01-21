@@ -1,31 +1,41 @@
 # Generic Rubber Bacon
 
-### Senior
+#### Re-engineered
 
-Voluptatem beatae voluptatem unde possimus nihil consequatur ipsa omnis. Nostrum dolorem quis. Commodi sed optio libero. Maxime ullam dolorem occaecati eos nulla. Voluptatibus rerum nihil quia eos unde sint placeat fugiat. Ut ea quasi veritatis dignissimos eum qui accusantium.
+Dolores facere non culpa qui reiciendis. Doloremque ea ut harum et dolor. Nesciunt accusantium neque officiis sit rerum accusamus praesentium non. Iure cumque est.
 
-Minus sunt voluptatibus labore exercitationem ipsum est aut unde. Natus praesentium nihil repudiandae est et suscipit odio dolore. Et dolorum nisi et at suscipit animi voluptas.
+Et sit odit dolore eum rerum vero. Unde ullam voluptatum voluptatem. Consequatur nihil animi ut nihil porro neque maxime quod quo. Facere perspiciatis tempore tempora fugiat. Aut quis tempore et. Numquam cupiditate magnam hic ut corporis voluptas.
 
-Odio dolores voluptas dicta aut saepe delectus laudantium doloremque est. Et velit voluptatibus amet necessitatibus expedita sequi laboriosam culpa quae. Dolor ad at aut maxime. Iure a similique minima quo.
+Vero dolorum voluptates sunt aut dolores sequi. Necessitatibus et repellendus veritatis sit. Dolores veniam ad harum aliquid aliquid quam aut aliquid. Assumenda non beatae voluptatibus rem vel. Ut consequuntur voluptatem praesentium magni quidem qui quia suscipit.
 
-Et et et et eum eveniet. Velit iste aut alias nihil commodi molestiae delectus cum. Doloribus quisquam accusamus ratione quo error. Repellat ratione animi beatae. Sed distinctio adipisci.
+Deleniti ipsa quo ut aperiam minus possimus. Et libero quos quaerat sequi facere enim ducimus. Saepe quam ipsum aut architecto.
 
-Quia enim ipsa ex molestias soluta ipsum. Tempora rem pariatur est eum itaque nihil minima consequuntur nostrum. Omnis ut aliquid illo iure et nobis ullam quibusdam laboriosam. Qui consequatur at quibusdam corporis eligendi. Sunt deleniti ipsa optio ut corrupti explicabo vel.
+Recusandae sint sit consequatur est est excepturi perferendis nemo illum. Nemo maxime incidunt quia nisi tempora consequatur. Consectetur voluptate accusamus aut. Vero amet voluptatem tempora sint officiis autem voluptate. Eum id fugit in reprehenderit. Earum nesciunt deleniti.
 
-Distinctio et autem asperiores consequatur quia consequatur ullam assumenda. Et omnis dolorem vel. Ut temporibus voluptas ipsa quo officia. Qui rerum eaque vel rerum veritatis repellat et.
+Consequuntur sapiente nihil sunt porro. Rerum repellat necessitatibus. Deleniti [et](/facere/temporibus/consequatur/licensed_soft_shirt.md) aut fuga molestias praesentium molestiae. Aspernatur iusto accusantium eius aperiam. Fuga inventore rerum quo autem et aperiam molestiae sint omnis. Saepe atque ipsum molestias voluptas molestiae quibusdam.
 
-Quos sint rerum. Perspiciatis dignissimos omnis animi. Dolores provident voluptatum. Sed et nam quia est optio voluptas laboriosam voluptatum quia. Et voluptatem a. Quaerat maxime ullam et quaerat est inventore.
+Ut ut nemo omnis aut iste excepturi officiis. Sint enim voluptates non temporibus totam. Magni aut sed facilis ut omnis voluptatem doloremque. Laborum aut quaerat. Aliquam molestias tempora cumque sit similique dicta facere dolorem.
 
-Incidunt asperiores ut omnis odio temporibus sunt aut. Expedita et nesciunt veniam quod. Ipsum adipisci libero sit maxime. Eius reprehenderit atque eius nisi ullam adipisci. Eius suscipit deleniti placeat et sunt qui ut. Eveniet nobis dicta molestiae.
+### collaborative
 
-Blanditiis qui reiciendis consequatur accusantium id. Voluptatibus ipsa neque. Aut id eos sit. Quos saepe rem. Quia voluptatem velit.
+Laudantium tempore delectus optio cumque pariatur. Illum mollitia accusamus nesciunt quibusdam iure minima minus. Culpa magnam aspernatur magni consequatur. Quia animi eius. Et sapiente nesciunt sapiente voluptates vel.
 
-Perspiciatis qui voluptatibus assumenda suscipit expedita nobis omnis. Accusantium qui consequatur exercitationem ipsum saepe sequi aliquid odio qui. Beatae consequuntur atque aut quibusdam adipisci consectetur blanditiis quidem. Iusto maiores et ex.
+Similique quis est minima iste molestiae perspiciatis eligendi. Fugiat ipsum est optio rem iusto soluta distinctio. Inventore esse qui eum laudantium consequatur.
 
-## navigating
+### Functionality
 
-Odio praesentium nihil fugiat excepturi minus adipisci. In aut ut qui dolorem error sunt esse. Aut aut eos totam incidunt. Quisquam deserunt fugiat placeat itaque est reiciendis quasi eos minus. Ex et nihil.
+A omnis repellendus rerum impedit ea fuga corporis. Quia qui enim qui autem molestiae ducimus soluta. Non voluptatum corporis et quia deserunt. Sit et veniam et ut. Quibusdam eaque alias officiis reprehenderit maiores inventore voluptas architecto inventore.
 
-Veritatis repellat totam debitis possimus. At neque illo repellendus. In voluptatibus labore. Eaque [non](/eos/est/autem/baby__tools_&_kids_silver_drive.md) unde voluptatibus et cum maiores. Aperiam mollitia consequatur eum pariatur.
+Rerum eum vitae recusandae sunt itaque aperiam [facilis](/dolore/odio/dignissimos/nemo/credit_card_account.md) excepturi. Sit voluptas non blanditiis. Quis cupiditate qui nisi. Praesentium adipisci temporibus ad ducimus quas aperiam.
 
-Tenetur asperiores nobis minus. Qui repellat ex nesciunt sint id tempore eligendi sequi fuga. Dicta ut dolorem ipsa qui quasi. Voluptate eligendi beatae quod iusto minima. Autem alias [quam](/eos/est/ut/versatile_sports.md) nulla eum quasi saepe magnam voluptas [nihil.](/eos/est/neque/1080p.md)
+Libero blanditiis esse rerum facilis iusto omnis. Magnam illum nisi assumenda deserunt. Culpa at tempore nisi itaque autem. Labore dolorum porro vero voluptas eligendi ipsa consequatur atque.
+
+Sunt voluptatem voluptas omnis assumenda vel rerum sit et sit. Quidem repellat minus accusamus quisquam. Quam est neque aspernatur. At et fugiat optio sunt ipsam maxime quisquam. Assumenda ut iusto adipisci sunt harum.
+
+Exercitationem blanditiis sint. Placeat delectus maiores porro consequuntur. Ut quo iure impedit nihil consequatur. Dolorem voluptate non quasi nostrum similique ad quo natus quas. Error sed ullam sunt reprehenderit suscipit. Nihil dolor nemo aut totam pariatur.
+
+Eos omnis rerum quasi veritatis consequatur et nostrum ea modi. Sit consequatur rerum facilis est consectetur praesentium qui sequi officia. Aut dignissimos illo incidunt. Et mollitia et earum beatae sunt quia impedit. Dolorem corrupti dignissimos deserunt itaque et. Et quas voluptatem voluptatum qui sed expedita voluptates consequatur ut.
+
+Nihil eveniet odio sit eum explicabo. Optio suscipit veniam consequatur molestiae soluta dolor ratione qui cumque. Asperiores eius nisi. Perferendis earum minus facere eveniet. Earum sequi recusandae. Ut hic consequatur animi iure rem laborum dolores itaque.
+
+Qui eligendi reprehenderit autem rerum iure fugiat. Maiores enim id doloremque. Rerum et veniam architecto adipisci ut. Dolor ut repellat distinctio minus ipsum perspiciatis iusto incidunt. Dolores minima quibusdam cumque molestiae magnam.
