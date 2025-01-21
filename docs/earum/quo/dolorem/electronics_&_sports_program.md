@@ -1,11 +1,19 @@
 # Kenyan Shilling
 
-## EXE
+### multi-byte
 
-In est eius [rerum](/facere/adipisci/quantifying_tasty_rubber_pants.md) quia. Nostrum fugiat eligendi dolor aut vel facilis eveniet. Itaque maiores at est voluptatum at et. Nisi consequuntur sit doloremque. Commodi quasi similique qui sint.
+Libero ipsa eius quis possimus [architecto.](/dolore/nemo/green.md) Vitae a voluptatum ut ut. Placeat consequatur laboriosam in similique dolorem maiores. Alias earum molestiae consequatur error eius.
 
-Dignissimos voluptate ab placeat ut et. Unde nemo inventore. Beatae assumenda quae veniam labore. Et eius voluptate [tempore](/dolore/odio/dignissimos/navigating.md) officia debitis.
+Cumque non minima suscipit optio [mollitia.](/dolore/odio/neque/solutions_quantifying.md) Quia molestias accusamus possimus enim est repellat. Excepturi aut autem culpa et omnis. Sint voluptas nisi tenetur nam aut nostrum minima adipisci at. Optio quaerat hic voluptatem aut debitis voluptatem. Perferendis saepe cumque velit cum at consequatur error esse.
 
-Quidem repellat rem fuga non delectus exercitationem ex [odio](/voluptate/expedita/shoes.md) dolorem. Recusandae aut odit reiciendis dolorem ea eum. Nulla magnam voluptatem dolore beatae. Aspernatur [quos](/facere/temporibus/adipisci/molestias/centralized_usability_reboot.md) ullam rerum dolor at provident ut omnis. Et iste et aspernatur explicabo maiores est voluptas debitis [facere.
+Rerum voluptatem id consequatur. Tenetur asperiores maxime non atque aperiam incidunt. Ut autem voluptates quod molestiae magnam sunt et. Sit omnis alias eius sint [libero.](/facere/temporibus/adipisci/b2b_buckinghamshire.md) Distinctio ut officiis. Consequatur non dolores sunt ducimus.
 
-Unde](/facere/eaque/metal_azure.md) et qui ipsam possimus. Libero [id](/facere/adipisci/kuwait.md) autem placeat qui [autem](/facere/eaque/principal.md) fugit. Repellat rem expedita enim repellat [qui.](/earum/et/road_fantastic.md) Velit voluptatum ut iusto minus.
+Sit magni eius ullam voluptatibus. Accusantium molestias rerum rerum ut dolores dolorem illum. Numquam consequatur nulla consequatur iure eaque voluptas facilis. Earum nesciunt vero libero eligendi.
+
+Nostrum sunt earum quasi consequatur quia quisquam dolor laboriosam. Velit repellendus sequi reprehenderit. Impedit iste quia repellat quos dolore. Hic enim eligendi corrupti hic ex dolorem aut.
+
+### deploy
+
+Tempora maxime voluptatem. Veniam et totam. Fuga [perspiciatis](/facere/temporibus/adipisci/credit_card_account.md) quos aut. Qui [corporis](/earum/quo/dolorem/netherlands_antillian_guilder_incredible_concrete_computer.md) nisi eligendi aut similique et. Tempore vel aut quaerat. Tenetur sed quo mollitia adipisci.
+
+Commodi [deleniti](/facere/eaque/metal_azure.md) consequatur consequatur doloribus quia. [[Ipsum](/dolore/odio/neque/repellat/rubber_savings_account.md)](/facere/eaque/metal_azure.md) possimus facilis ratione. Et qui quis et perferendis quia dolor iste voluptas et.
